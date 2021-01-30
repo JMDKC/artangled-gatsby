@@ -40,6 +40,7 @@ module.exports = {
             slug: `/about`,
           },
         ],
+        blogPath: `/posts`,
         externalLinks: [
           {
             name: `Twitter`,
