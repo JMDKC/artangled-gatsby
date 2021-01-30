@@ -1,12 +1,16 @@
 /** @jsx jsx */
-import { jsx, Heading, Link as TLink } from "theme-ui"
+import { jsx } from "theme-ui"
 import { Link } from "gatsby"
-import { Flex } from "@theme-ui/components"
 import Layout from "./layout"
+import Title from "./title"
 import Listing from "./listing"
+import List from "./list"
 import useMinimalBlogConfig from "../hooks/use-minimal-blog-config"
+import useSiteMetadata from "../hooks/use-site-metadata"
 import replaceSlashes from "../utils/replaceSlashes"
-import SEO from "./seo"
+import { visuallyHidden } from "../styles/utils"
+// @ts-ignore
+import Hero from "../texts/hero"
 
 type PostsProps = {
   posts: {
@@ -24,27 +28,22 @@ type PostsProps = {
   [key: string]: any
 }
 
-const Blog = ({ posts }: PostsProps) => {
-  const { tagsPath, basePath } = useMinimalBlogConfig()
+const Homepage = ({ posts }: PostsProps) => {
+  const { basePath, blogPath } = useMinimalBlogConfig()
+  const { siteTitle } = useSiteMetadata()
 
   return (
     <Layout>
-      <SEO title="Posts" />
-      <Flex sx={{ alignItems: `center`, justifyContent: `space-between`, flexFlow: `wrap` }}>
-        <Heading as="h1" variant="styles.h1" sx={{ marginY: 2 }}>
-          Posts
-        </Heading>
-        <TLink
-          as={Link}
-          sx={{ variant: `links.secondary`, marginY: 2 }}
-          to={replaceSlashes(`/${basePath}/${tagsPath}`)}
-        >
-          View all tags
-        </TLink>
-      </Flex>
-      <Listing posts={posts} sx={{ mt: [4, 5] }} />
+      <h1 sx={visuallyHidden}>{siteTitle}</h1>
+      <section sx={{ mb: [5, 6, 7], p: { fontSize: [1, 2, 3], mt: 2 }, variant: `section_hero` }}>
+        <Hero />
+      </section>
+      <Title text="Latest Posts">
+        <Link to={replaceSlashes(`/${basePath}/${blogPath}`)}>Read all posts</Link>
+      </Title>
+      <Listing posts={posts} showTags={false} />
     </Layout>
   )
 }
 
-export default Blog
+export default Homepage
