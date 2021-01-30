@@ -4,7 +4,7 @@ date: 2019-07-07
 slug: "/brughera-manchester"
 tags:
   - Tania Brughera
-  - Manchester Art Gallery"
+  - Manchester Art Gallery
   - Manchester
 ---
 

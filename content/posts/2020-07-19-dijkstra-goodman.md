@@ -1,10 +1,10 @@
 ---
-title: "Rineka Dijkstra | Marian Goodman"
+title: "Rineka Dijkstra | Marian Goodman Gallery"
 date: 2020-07-19
 slug: "/dijkstra-goodman"
 tags:
   - Rineka Dijkstra
-  - Marian Goodman
+  - Marian Goodman Gallery
   - London
 ---
 
@@ -24,4 +24,4 @@ The shadows from the trees in Sefton Park are quite lengthly, it must be after s
 
 In Dijkstra’s photos, according to the show notes “time is embodied to reveal transitory moments or passages of change; how exchange between sitter, photographer and spectator is both contingent and resonant; and photography’s revelation and reflection of the self”. Well, exactly!
 
-*Rineke Dijkstra is at Marian Goodman (London). March 12 - July 25 2020*
+*Rineke Dijkstra is at Marian Goodman Gallery (London). March 12 - July 25 2020*

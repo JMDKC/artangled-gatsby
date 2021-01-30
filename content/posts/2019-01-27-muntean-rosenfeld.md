@@ -1,7 +1,7 @@
 ---
 title: "Robert Muntean - Just Like Honey | Rosenfeld Porcini"
 date: 2019-01-27
-slug: "/stoner-modern"
+slug: "/muntean-rosenfeld"
 tags:
   - Robert Muntean
   - Richard Gerstl

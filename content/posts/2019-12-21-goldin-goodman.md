@@ -1,11 +1,11 @@
 ---
-title: "Nan Goldin - Sirens | Marian Goodman"
+title: "Nan Goldin - Sirens | Marian Goodman Gallery"
 date: 2019-12-21
 slug: "/goldin-goodman"
 tags:
   - Nan Goldin
   - Peter Hujar
-  - Marian Goodman
+  - Marian Goodman Gallery
   - London
 ---
 
@@ -21,4 +21,4 @@ Goldin’s friend Peter Hujar has [a retrospective on at the Jeu de Paume right 
 
 Neither seem life-changingly relevant today, but that’s as much due to the artistic world they helped create through being so influential. They helped set the scene.
 
-*Nan Goldin: Sirens is at Marian Goodman (London). November 14 2019 - January 11 2020*
+*Nan Goldin: Sirens is at Marian Goodman Gallery (London). November 14 2019 - January 11 2020*
