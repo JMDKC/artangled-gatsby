@@ -1,7 +1,7 @@
 ---
 title: "Débora Delmar - Corporate Facades | Soft Opening"
 date: 2018-09-16
-slug: "/stoner-modern"
+slug: "/delmar-soft"
 tags:
   - Débora Delmar
   - Soft Opening

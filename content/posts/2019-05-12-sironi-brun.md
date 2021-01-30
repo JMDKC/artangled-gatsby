@@ -1,7 +1,7 @@
 ---
 title: "Mario Sironi - Signs and Colours | Brun Fine Art"
 date: 2019-05-12
-slug: "/stoner-modern"
+slug: "/sironi-brun"
 tags:
   - Mario Sironi
   - Brun Fine Art
