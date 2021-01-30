@@ -6,6 +6,7 @@ tags:
   - Massimo Bartolini
   - Frith Street Gallery
   - London
+  - Turin 
 ---
 
 It seems like a long time ago, now: a world where taking a trip to Italy was an indulgence, rather than an impossibility. I used some of my two days in Turin, back in late 2017, to visit the Fondazione Merz, a converted Lancia factory in a pretty suburb. Sitting on its concrete floor as the September sun slanted through its high windows, the space rebounded with metallic clanks, whizzes and hisses. [That’s where I first encountered the work of Massimo Bartolini](http://fondazionemerz.org/en/exhibitions/massimo-bartolini-four-organs/).

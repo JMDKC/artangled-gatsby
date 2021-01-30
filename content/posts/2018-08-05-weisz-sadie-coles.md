@@ -1,7 +1,7 @@
 ---
 title: "Paloma Varga Weisz - Wild Bunch | Sadie Coles HQ"
 date: 2018-08-05
-slug: "/stoner-modern"
+slug: "/weisz-sadie-coles"
 tags:
   - Paloma Varga Weisz
   - Sadie Coles

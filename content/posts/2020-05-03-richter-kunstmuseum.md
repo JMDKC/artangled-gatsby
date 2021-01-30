@@ -13,7 +13,7 @@ Gerhard Richter made a series of oil paintings based on photographs in the 1960s
 
 The artist used source material ranging from popular magazines to his own family photo albums. He painted them at a time of an economic boom, with Germany (the West, at least), aiming to leave behind the dark past and enjoy a brighter life of travel, new leisure pursuits and an ever-increasing range of consumer goods to buy.
 
-As an artist, Richter’s antipathy to consumerism is deeply conventional for his time. Consider Pop Art’s insistent focus on the sinister potential of the mass-produced physical relics of commercial culture, which saw Richter’s compatriot [Sigmar Polke painstakingly painting](http://artangled.com/2018/04/01/laing-levy-gorvy/) the Ben-day dots that form images on cheap newsprint.
+As an artist, Richter’s antipathy to consumerism is deeply conventional for his time. Consider Pop Art’s insistent focus on the sinister potential of the mass-produced physical relics of commercial culture, which saw Richter’s compatriot [Sigmar Polke painstakingly painting](/laing-levy-gorvy/) the Ben-day dots that form images on cheap newsprint.
 
 ![motorboot](/richter-kunstmuseum-1.jpg)
 

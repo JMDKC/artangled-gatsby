@@ -16,7 +16,7 @@ But the photo below shakes up the formula a bit, and stands out. It was taken in
 
 The photograph was taken in June 2006: summer term. In contrast to the placid demeanours that stare out at us from other photos in the show, there’s tension in the air here. The teenage boy and girl’s school uniforms look a bit sweaty, clinging to and bagging from their hunched frames.
 
-The boy manspreads aggressively, his big white hairy feet turned out, freed from the hot confines of school socks and smart shoes. But his blazer pinches his shoulders, signs of an ongoing growth spurt. He's barely contained. Meanwhile, the girl shrinks away from us, making herself small; her knees and feet pointing inwards and enclose her hands. Both have furtive expressions, as if taken by surprise. They don’t entirely welcome Dijkstra’s attention.
+The boy manspreads aggressively, his big white hairy feet turned out, freed from the hot confines of school socks and smart shoes. But his blazer pinches his shoulders, signs of an ongoing growth spurt. He's barely contained. Meanwhile, the girl shrinks away from us, making herself small; her knees and feet pointing inwards and enclosing her hands. Both have furtive expressions, as if taken by surprise. They don’t entirely welcome Dijkstra’s attention.
 
 It seems like an action photograph, taken on the fly. Though this can’t possibly be true, considering the beautiful lighting and framing, and what we know about the artist’s working methods: she uses two tripods, one for the flash and one for the camera, which takes quite a bit of setting up. So this pair have been sat there for a little while at least, with the photographer clicking away.
 
