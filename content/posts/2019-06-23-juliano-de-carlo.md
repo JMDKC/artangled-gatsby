@@ -8,7 +8,7 @@ tags:
   - London
 ---
 
-Slapdash, funny and deeply, deeply Instagrammable, New York-based Jamian Juliano-Villani has [produced a sweet summer treat](https://www.massimodecarlo.com/exhibitions/view/12109?&lang=eng). Like a soft scoop ice cream special with hundreds and thousands, a flavoured cone AND a Flake, this show is an all out assault and loud acrylic paintings and sculpture. And all the better for being offset by one of London’s poshest and soberest private gallery spaces.
+Slapdash, funny and deeply, deeply Instagrammable, New York-based Jamian Juliano-Villani has [produced a sweet summer treat](https://www.massimodecarlo.com/exhibitions/view/12109?&lang=eng). Like a soft scoop ice cream special with hundreds and thousands, a flavoured cone AND a Flake, this show is an all out assault. And the generally lurid work is nicely offset by its host: one of London’s poshest and soberest private gallery spaces.
 
 My favourite - introduced [via Russell Tovey’s Instagram of all places](https://www.instagram.com/p/By-Tcb5hej3/) - features a cuddly tiger getting savagely orally pumped by a mechanised dildo in a plastic bag. If you can’t imagine what that looks like, check out the picture below.
 

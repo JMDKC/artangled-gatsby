@@ -23,6 +23,6 @@ I was so struck by Capitán’s expert and artful organisation of all these obje
 
 ![painting of blue sky](/capitan-william-2.jpg)
 
-It’s just the opposite of the deliberately slapdash Jamian Juliano-Villani show across town at Massimo de Carlo [that I viewed last week](http://artangled.com/2020/09/13/junque-massimo/): this is a militaristically organised multi media assault. And I loved it!
+It’s just the opposite of the deliberately slapdash Jamian Juliano-Villani show across town at Massimo de Carlo [that I viewed last week](/junque-massimo/): this is a militaristically organised multi media assault. And I loved it!
 
 *Coco Capitán: Naïvy is at Maximillian William (London). 11 September - 30 October 2020*

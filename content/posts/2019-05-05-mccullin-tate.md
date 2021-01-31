@@ -4,8 +4,8 @@ date: 2019-05-05
 slug: "/mccullin-tate"
 tags:
   - Don McCullin
-  - Tate
-  - Hamiltons
+  - Tate Britain
+  - Hamilton's
   - London
 ---
 

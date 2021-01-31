@@ -7,13 +7,12 @@ tags:
   - Tom Fecht
   - Cy Twombly
   - Peter Wüthrich
-  - Bernd Zimmer
   - Emil Nolde
+  - Bernd Zimmer
   - Lenbachhaus
   - Galerie Wittenbrink
   - Museum Brandhorst
-  - Susan Boutwell
-  - Bernd Zimmer
+  - Susan Boutwell Gallery
   - Munich
 ---
 

@@ -12,12 +12,12 @@ tags:
   - Thaddeus Ropac
   - Perrotin
   - VnH Gallery
-  - Paris 
+  - Paris
 ---
 
 Albert Oehlen is a difficult artist to love, but an easy artist to admire. This is due to his tendency treat his painting as an intellectual exercise within strict self-imposed boundaries, rather than a vehicle of sensual pleasure. This tendency is on show in a pair of identically- titled exhibitions in two of Paris’ most prestigious private galleries: [Max Hetzler](https://www.maxhetzler.com/exhibitions/albert-oehlen-sexe-religion-politique-2018/press-en/) and [Gagosian](https://gagosian.com/exhibitions/2018/albert-oehlen-sexe-religion-politique/).
 
-Each exhibition features near-identical works in hue: clearly another deliberately-imposed restriction from Oehlen. Each work consists of two rectangular pieces of alubond, put together to form a square, with each side 2.6 metres. Each uses oil and lacquer. Each has an annoyingly, deliberately throwaway title: *Operation Radication*, *Bam Bam* (below), *Natty Dread Something*: more goading from the artist.
+Each exhibition features near-identical works in hue: clearly another deliberately-imposed restriction from Oehlen. Each work consists of two rectangular pieces of alubond, put together to form a square, with each side 2.6 metres long. Each uses oil and lacquer. Each has an annoyingly, deliberately throwaway title: *Operation Radication*, *Bam Bam* (below), *Natty Dread Something*: more goading from the artist.
 
 ![installation view](/oehlen-hetzler-1.jpg)
 
