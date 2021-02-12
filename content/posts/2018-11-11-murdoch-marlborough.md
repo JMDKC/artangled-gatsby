@@ -15,11 +15,11 @@ tags:
   - Marlborough Fine Arts
   - PACE
   - The Mayor Gallery
-  - Robilant & Voena
+  - Robilant + Voena
   - Hauser & Wirth
   - Royal Academy
   - Thomas Dane Gallery
-  - White Cube 
+  - White Cube
   - London
 ---
 
