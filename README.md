@@ -20,10 +20,6 @@ It uses the Gatsby Theme [`@lekoarts/gatsby-theme-minimal-blog`](https://github.
 - SEO (Sitemap, OpenGraph tags, Twitter tags)
 - Offline Support & WebApp Manifest
 
-## 🎓 Learning Gatsby
-
-Full documentation for Gatsby lives [on Gatsby's website](https://www.gatsbyjs.org/).
-
 ### Themes
 
 To learn more about Gatsby themes specifically, check out the [theme docs](https://www.gatsbyjs.org/docs/themes/).

@@ -11,7 +11,7 @@ This endless hot summer hasn't led to many art discoveries. Instead, I've been s
 
 Part of the ongoing Art on the Underground series, and from British artist Heather Phillipson, it's an extravaganza of large boiled eggs, fried eggs, 24 vinyl chicken feet, and video works inspired by old computer game graphics.
 
-![Installation view](/eggysrub-gloucester.jpg){: .center-image }
+![Installation view](/eggysrub-gloucester.jpg)
 
 There's also a massive automated whisk, egg sandwiches, custard tarts (an excellent use of an egg) and some diagrams of chicken foetuses. And each day, as the Eastbound train pulls in, the commuters bound for their jobs in the city and west end turn, crane their necks, and smile. The whisk is blown around by the rush of air.
 
