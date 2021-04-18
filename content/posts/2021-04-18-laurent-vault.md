@@ -12,7 +12,7 @@ After four months of long lockdown, London’s commercial galleries reopened thi
 
 I guess you could call it a staged reopening: not being able to face a busy tube and Mayfair, I chose [my first show back](https://www.theoldbankvault.com/exhibitions/9-psychomachia/overview/) to be at a gallery within cycling distance of my flat. The artwork on show - India ink sketches on paper from French artist Alban Laurent - is well described by The Old Bank Vault’s own press release as “doodle[s]”
 
-![alban laurent - sloth](2021-04-18-laurent-vault/laurent-vault-1.jpg)
+![alban laurent - sloth](/laurent-vault-1.jpg)
 
 *Sloth (2020)*
 
