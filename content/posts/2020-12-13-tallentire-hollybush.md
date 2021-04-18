@@ -1,10 +1,10 @@
 ---
-title: "Anne Tallentire - As Happens | Hollybush Gardens"
-date: 2020-12-13
-slug: "/tallentire-hollybush"
+title: "Psychomachia | The Old Bank Vault"
+date: 2021-04-18
+slug: “/laurent-vault”
 tags:
-  - Anne Tallentire
-  - Hollybush Gardens
+  - Alban Laurent
+  - The Old Bank Vault
   - London
 ---
 
