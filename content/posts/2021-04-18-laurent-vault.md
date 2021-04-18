@@ -1,11 +1,18 @@
-# 2021-04-18-laurent-vault
-Psychomachia | The Old Bank Vault
+---
+title: "Psychomachia | The Old Bank Vault"
+date: 2021-04-18
+slug: “/laurent-vault”
+tags:
+  - Alban Laurent
+  - The Old Bank Vault
+  - London
+---
 
 After four months of long lockdown, London’s commercial galleries reopened this week. The city’s bathed in spring sunshine, the streets are (comparatively) bustling, and it’s time to blow the dust and cobwebs off this website and get going again!
 
 I guess you could call it a staged reopening: not being able to face a busy tube and Mayfair, I chose [my first show back](https://www.theoldbankvault.com/exhibitions/9-psychomachia/overview/) to be at a gallery within cycling distance of my flat. The artwork on show - India ink sketches on paper from French artist Alban Laurent - is well described by The Old Bank Vault’s own press release as “doodle[s]”
- 
-![](2021-04-18-laurent-vault/laurent-vault-1.jpg)
+
+![alban laurent - sloth](2021-04-18-laurent-vault/laurent-vault-1.jpg)
 
 *Sloth (2020)*
 
@@ -20,5 +27,3 @@ My eyes might have glazed over when trying to look harder at these doodles, but 
 On to the next week, and more great exhibitions!
 
 *Psychomachia is at The Old Bank Vault (London).  13 Apr - 16 May 2021*
-
-#art/artangled
