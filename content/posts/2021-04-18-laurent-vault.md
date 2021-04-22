@@ -1,7 +1,7 @@
 ---
 title: "Psychomachia | The Old Bank Vault"
 date: 2021-04-18
-slug: “/laurent-vault”
+slug: "/laurent-vault"
 tags:
   - Alban Laurent
   - Gillian Wearing
@@ -11,7 +11,7 @@ tags:
 
 After four months of long lockdown, London’s commercial galleries reopened this week. The city’s bathed in spring sunshine, the streets are (comparatively) bustling, and it’s time to blow the dust and cobwebs off this website and get going again!
 
-I guess you could call it a staged reopening: not being able to face a busy tube and Mayfair, I chose [my first show back](https://www.theoldbankvault.com/exhibitions/9-psychomachia/overview/) to be at a gallery within cycling distance of my flat. The prevailing style of the work on show - India ink sketches on paper from French artist Alban Laurent - is well described by The Old Bank Vault’s own press release as “doodle”.
+I guess you could call it a staged reopening: not being able to face a busy tube and Mayfair, I chose [my first show back](https://www.theoldbankvault.com/exhibitions/9-psychomachia/overview/) to be at a gallery within cycling distance of my flat. The prevailing style of the work on show - india ink sketches on paper from French artist Alban Laurent - is well described by The Old Bank Vault’s own press release as “doodle”.
 
 ![alban laurent - sloth](/laurent-vault-1.jpg)
 
