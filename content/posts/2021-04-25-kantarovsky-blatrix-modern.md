@@ -1,7 +1,7 @@
 ---
 title: "Sanya Kantarovsky & Camille Blatrix: Will-o’-the-wisp | Modern Art"
 date: 2021-04-25
-slug: “/kantarovsky-blatrix-modern”
+slug: /kantarovsky-blatrix-modern
 tags:
   - Sanya Kantarovsky
   - Camille Blatrix
