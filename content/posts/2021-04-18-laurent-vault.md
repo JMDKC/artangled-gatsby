@@ -1,7 +1,7 @@
 ---
 title: "Psychomachia | The Old Bank Vault"
 date: 2021-04-18
-slug: "/psychomachia"
+slug: "/laurent-vault"
 tags:
   - Alban Laurent
   - Gillian Wearing
