@@ -1,5 +1,5 @@
 ---
-title: “Thomas Demand | Sprüth Magers”
+title: "Thomas Demand | Sprüth Magers"
 date: 2021-05-02
 slug: /demand-spruth-magers
 tags:
