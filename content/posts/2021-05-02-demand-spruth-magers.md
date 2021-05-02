@@ -1,11 +1,13 @@
+---
 title: “Thomas Demand | Sprüth Magers”
 date: 2021-05-02
-slug: “/demand-spruth-magers”
+slug: /demand-spruth-magers
 tags:
   - Thomas Demand
   - Luigi Ghirri
   - Sprüth Magers
   - London
+---
 
 I loved *Canopy*, the photograph below, [on show in the main gallery room](https://spruethmagers.com/exhibitions/thomas-demand-london-2021/) at Sprüth Magers at the moment.  It’s a sunny scene of some powdery blue apartment block, with a single, lemon sorbet-coloured titular canopy over-extended over one of the blocky white balconies. All the interiors are in shadow. Given the work’s from 2020, the artist must have been thinking of our lockdown, the confinement of millions to the interior of their homes; for some, their balconies was the only outside space they dared to enjoy.
 
