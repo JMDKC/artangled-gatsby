@@ -25,6 +25,6 @@ This way, the two artists work together towards a whole: two staring, elongated 
 ![installation view](/kantarovsky-blatrix-modern-2.jpg)
 *(l-r) Cataracts Encased, Curtain Encased (both 2021)*
 
-The combination is deeply satisfying. Two like minds are joined across the ocean: Kantarovsky was born in Russia, but is based in New York; Blatrix lives and works in Paris. Anyway, what a nice pair to encounter, back in the west end for a Mayfair gallery binge after lockdown.
+The combination is deeply satisfying. Two like minds are joined across the ocean: Kantarovsky was born in Russia, but is based in New York; Blatrix lives and works in Paris. What a nice pair of considerable talents to encounter, back in the west end for a Mayfair gallery binge after lockdown.
 
 *Sanya Kantarovsky & Camille Blatrix: Will-o’-the-wisp is at Modern Art Bury Street (London). 23 April - 22 May 2021*
