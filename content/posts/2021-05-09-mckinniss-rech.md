@@ -25,7 +25,7 @@ McKinniss is famous for his paintings of celebrities, based on Google image sear
 
 Along with some other blank-faced portraits of country stars - Shania Twain, Lyle Lovett - McKinniss is showing a few landscapes. These share the same flatness of the portraits, and I’d bet they’re painted from online image searches too. I loved *Nashville*, a painting of a photo of the same town that Dolly went to to make her fortune as a teenager. But there are no signs of country music, or even much culture at all, in McKinniss’ scene of chunky, bland skyscrapers. Each of the square windows on these square buildings, picked out with an electric light, are as featureless as a tooth veneer.
 
-Car headlights and tail lights are picked out in wide roads towards the foreground. One - perhaps mirrored - skyscraper is highlighted in red, the same red of Parton’s fingernails, as if reflecting a hellish sunset. What a scene!
+Car headlights are picked out in wide roads towards the foreground. One - perhaps mirrored - skyscraper is highlighted in red, the same red of Parton’s fingernails, as if reflecting a hellish sunset. What a scene!
 
 In [a recent interview](https://www.ssense.com/en-us/editorial/culture/famous-feelings-with-painter-sam-mckinniss), McKinniss flagged 19th century impressionist (and noted dreamboat) Henri Fantin-Latour as a major influence. He’s most famous for his flower paintings, but he was also a noted portraitist, and ended his career making mystical scenes under the Romantic influence of Richard Wagner. The unifying quality of the two painters? According to McKinniss, it’s strangeness.
 
