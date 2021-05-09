@@ -1,5 +1,5 @@
 ---
-title: “Sam McKinniss: Country Western | Almine Rech”
+title: "Sam McKinniss: Country Western | Almine Rech"
 date: 2021-05-09
 slug: /mckinniss-rech
 tags:
