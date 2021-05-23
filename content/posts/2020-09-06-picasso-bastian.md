@@ -1,7 +1,7 @@
 ---
 title: "Atelier Picasso | Bastian"
 date: 2020-09-06
-slug: "/jaar-goodman"
+slug: "/picasso-bastian"
 tags:
   - Pablo Picasso
   - Bastian
