@@ -14,7 +14,7 @@ Or maybe a pastel de nata? A major theme of Vasconcelos’ work is Portuguesenes
 ![red independent heart - joana vasconcelos](/vasconcelos-ysp-2.png)
 *Red Independent Heart (2013)*
 
-Similarly, in *Red Independent Heart*, it’s not enough to reference the Heart of Viana, a religious symbol that’s a popular Portuguese jewellery motif. The work slowly spins in a darkened gallery, accompanied by Fado music from Amália Rodrigues, the nation’s most famous singer. It's the Lusophone equivalent of a bust depicting Shakespeare eating a full English, slowly rotating to the strains of *We’ll meet again*.
+Similarly, in *Red Independent Heart*, it’s not enough to reference the Heart of Viana, a religious symbol that’s a popular Portuguese jewellery motif. The work slowly spins in a darkened gallery, accompanied by Fado music from Amália Rodrigues, the nation’s most famous singer. It's the Lusophone equivalent of a bust depicting Shakespeare eating a full English, rotating to the strains of *We’ll meet again*.
 
 But at the same time, it’s hard not to appreciate the craft on show, as well as feel bowled over by the sheer visual wow factor. Looking closely at the spinning heart, you’ll see that it’s been built out of plastic cutlery. A three metre tall representation of a luxury object then, made of mass-market tat. It’s pretty arresting.
 
