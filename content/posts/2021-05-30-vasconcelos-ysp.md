@@ -14,14 +14,14 @@ Or maybe a pastel de nata? A major theme of Vasconcelos’ work is Portuguesenes
 ![red independent heart - joana vasconcelos](/vasconcelos-ysp-2.png)
 *Red Independent Heart (2013)*
 
-Or, in *Red Independent Heart*, it’s not enough to reference the Heart of Viana, a religious symbol that’s a popular Portuguese jewellery motif. The work slowly spins in a darkened gallery, accompanied by Fado music from Amalia Rodrigues, the nation’s most famous singer. Using the UK as an example, it’s the equivalent of a bust depicting Shakespeare eating a full English, slowly rotating to the strains of *We’ll meet again*.
+Similarly, in *Red Independent Heart*, it’s not enough to reference the Heart of Viana, a religious symbol that’s a popular Portuguese jewellery motif. The work slowly spins in a darkened gallery, accompanied by Fado music from Amália Rodrigues, the nation’s most famous singer. It's the Lusophone equivalent of a bust depicting Shakespeare eating a full English, slowly rotating to the strains of *We’ll meet again*.
 
-But at the same time, it’s hard not to appreciate the craft on show, as well as feel bowled over by the visual wow factor. Looking closely at the spinning heart, you’ll see that it’s been built out of plastic cutlery. A three metre tall representation of a luxury object, made of mass-market tat. It’s pretty arresting.
+But at the same time, it’s hard not to appreciate the craft on show, as well as feel bowled over by the sheer visual wow factor. Looking closely at the spinning heart, you’ll see that it’s been built out of plastic cutlery. A three metre tall representation of a luxury object then, made of mass-market tat. It’s pretty arresting.
 
 ![marilyn - joana vasconcelos](/vasconcelos-ysp-1.png)
 *Marilyn (2009/11)*
 
-Again and again, sledgehammer political points give way to satisfying spectacle. It’s enough to appreciate a gigantic pair of stiletto heels, made out of shiny saucepans, as a fabulous photo opportunity. And this appreciation comes before thinking that the choice of objects to represent the tension between the stereotypically female roles of domestic worker and sex object are too obvious to be truly subversive.
+Again and again, sledgehammer symbolism gives way to satisfying spectacle. It’s enough to appreciate a gigantic pair of stiletto heels, made out of shiny saucepans, as a fabulous photo opportunity. And you can appreciate the work, even while thinking in the back of your mind that the choice of objects - representing the tension between the stereotypically female roles of domestic worker and sex object - are too obvious to be truly subversive.
 
 Let go, enjoy, take the photo and move on. It’s sunny outside, and there’s so much to see!
 
