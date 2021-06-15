@@ -12,7 +12,7 @@ tags:
 
 Prunella Clough liked to explore the train yards at Willesden Junction: quite  a messy and down-at-heel place these days, but surely an absolute decrepit dump in the post-war years in which she started working. From a wealthy background, she spent much of her career teaching at the Chelsea School of Art. But her own artistic output focused on semi-abstract paintings and prints of grimy, industrial and forgotten corners of London.
 
-The span of the career’s on show in [this impressive exhibition](https://www.annelyjudafineart.co.uk/exhibitions/59-prunella-clough-and-alan-reynolds/overview/). It starts with a couple of early figurative works - including a shopworn factory floor, overlaid with browns and beiges, industrial wares teetering in piles. It made me think of all of the thrusting hope of pre-war Futurism, that clean kinetic energy slowly grinding to a grimy halt. There’s a striking stillness to Clough’s work.
+The span of the career’s on show in [this impressive exhibition](https://www.annelyjudafineart.co.uk/exhibitions/59-prunella-clough-and-alan-reynolds/overview/). It starts with a couple of early works - including a shopworn factory floor, overlaid with browns and beiges, industrial wares teetering in piles. It made me think of all of the thrusting hope of pre-war Futurism, that clean kinetic energy slowly grinding to a halt. There’s a striking stillness to Clough’s work.
 
 ![prunella clough - factory interior](/clough-annely-1.jpg)
 

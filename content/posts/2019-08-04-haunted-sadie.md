@@ -4,7 +4,7 @@ date: 2019-08-04
 slug: "/haunted-sadie"
 tags:
   - Marianna Simnett
-  - Alex da Corte
+  - Alex Da Corte
   - Sadie Coles HQ
   - London
 ---

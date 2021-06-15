@@ -15,7 +15,7 @@ There are two main subjects, generally in painted metal: group scenes of crowds 
 ![julian opie - installation view](/opie-lisson-1.jpg)
 (l-r) *Old Street December 11 (2021), Apartments 1 (2021)*
 
-I loved the aluminium tower blocks, too. A collection of four is stacked against the wall for *Apartments 1*, overlapping each other slightly, a pristine and orderly urban scene. Opie clearly has affection for people, streets, the city, which made me think of Prunella Clough, that other London artist I featured last week, who was attracted to grimy and forgotten corners.
+I loved the aluminium tower blocks, too. A collection of four is stacked against the wall for *Apartments 1*, overlapping each other slightly, a pristine and orderly urban scene. Opie clearly has affection for people, streets, the city, which made me think of Prunella Clough, [that other London artist I featured last week](/clough-annely), who was attracted to grimy and forgotten urban corners.
 
 The two artists work in the same city, but highlight different aspects of the same place: Opie’s big metal works show business and order; Clough’s small paintings are the exact opposite.
 
