@@ -1,5 +1,5 @@
 ---
-title: "Tracey Emin / Edvard Munch: The Loneliness of the Soul"
+title: "Tracey Emin / Edvard Munch: The Loneliness of the Soul | Royal Academy"
 date: 2021-06-20
 slug: /emin-royal-academy
 tags:
