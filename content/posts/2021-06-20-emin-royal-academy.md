@@ -9,7 +9,7 @@ tags:
   - London
 ---
 
-There’s a bench in Berkeley Square in Mayfair with a funny plaque: *On this bench in 2007, it states, the notorious artist Tracey Emin surrendered all her art rebel credibility when she decided to become a member of the Royal Academy of Arts.* Times have changed: she’s not just a member these days. Instead, this self-described “notorious rebel” has aged into full blown grande dame status, and is getting [a new RA exhibition](https://www.royalacademy.org.uk/exhibition/tracey-emin-edvard-munch), a few streets away from the square.
+There’s a bench in Berkeley Square in Mayfair with a funny plaque: *On this bench in 2007,* it states, *the notorious artist Tracey Emin surrendered all her art rebel credibility when she decided to become a member of the Royal Academy of Arts.* Times have changed: she’s not just a member these days. Instead, this self-described “notorious rebel” has aged into full blown grande dame status, and is getting [a new RA exhibition](https://www.royalacademy.org.uk/exhibition/tracey-emin-edvard-munch), a few streets away from the square.
 
 Emin (it’s hard not to call her Tracey in my head, even though she’s a multi millionaire who I’m never likely to meet) [hasn’t been well at all recently](https://www.thetimes.co.uk/article/tracey-emin-on-her-secret-cancer-battle-to-get-past-christmas-would-be-good-r00rsb5h8). It’s hard not to think of her medical distress when walking around this exhibition, a joint show with Edvard Munch, who of course is responsible for one of the world’s most iconic representations of distress.
 
