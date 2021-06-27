@@ -1,3 +1,4 @@
+---
 title: "Yu Ji: Wasted Mud | Chisenhale Gallery"
 date: 2021-06-27
 slug: /yu-chisenhale
@@ -7,6 +8,7 @@ tags:
   - Julian Opie
   - Chisenhale Gallery
   - London
+---
 
 My response to [this installation in the reopened one-room Chisenhale Gallery](https://chisenhale.org.uk/exhibition/yu-ji/) was quite visceral. The first thing that hit me was the smell of standing water, which stood in puddles on the concrete floor, after dripping down from steel pipes. The source of those pipes is also the source of the second sensory reaction: stainless steel jugs churn loudly, a threatening hum. This is an electric water pump, the source of the drips, the puddles, the smell.
 

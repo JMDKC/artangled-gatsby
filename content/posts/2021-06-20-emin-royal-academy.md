@@ -1,3 +1,4 @@
+---
 title: "Tracey Emin / Edvard Munch: The Loneliness of the Soul"
 date: 2021-06-20
 slug: /emin-royal-academy
@@ -6,6 +7,7 @@ tags:
   - Edvard Munch
   - Royal Academy
   - London
+---
 
 There’s a bench in Berkeley Square in Mayfair with a funny plaque: *On this bench in 2007, it states, the notorious artist Tracey Emin surrendered all her art rebel credibility when she decided to become a member of the Royal Academy of Arts.* Times have changed: she’s not just a member these days. Instead, this self-described “notorious rebel” has aged into full blown grande dame status, and is getting [a new RA exhibition](https://www.royalacademy.org.uk/exhibition/tracey-emin-edvard-munch), a few streets away from the square.
 
