@@ -4,8 +4,6 @@ date: 2021-06-27
 slug: /yu-chisenhale
 tags:
   - Yu Ji
-  - Prunella Clough
-  - Julian Opie
   - Chisenhale Gallery
   - London
 ---
