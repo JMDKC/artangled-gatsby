@@ -1,3 +1,4 @@
+---
 title: "Swinging London | Hazlitt Holland-Hibbert"
 date: 2021-07-04
 slug: /swinging-hazlitt
@@ -10,6 +11,7 @@ tags:
   - Redfern Gallery
   - Waddington Custot
   - London
+---
 
 Three linked exhibitions this week, each carrying with them a whiff of patchouli oil and pot. It’s not quite (yet) a Summer of Love in London, but these shows all reach back to the 1960s, a time of Pop and Op... and some very big floppy collars.
 
