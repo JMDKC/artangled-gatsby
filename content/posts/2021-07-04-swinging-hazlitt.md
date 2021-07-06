@@ -17,7 +17,7 @@ Three linked exhibitions this week, each carrying with them a whiff of patchouli
 
 One of the biggest and floppiest is sported by legendary fashion designer Ossie Clark, sketched at home by the still more legendary (and decade-defining) David Hockney. This delicate pencil drawing is [on show at Hazlitt Holland-Hibbert](https://hh-h.com/usr/library/documents/main/press-release-swinging-london-12-april-2021.pdf), in the bluntly but accurately titled exhibition, *Swinging London*
 
-![david hockney - ossie clark powis terrace](/swinging-hazlitt-1.jpeg)
+![david hockney - ossie clark powis terrace](/swinging-hazlitt-1.jpg)
 *Ossie Clark. Powis Terrace (1968)*
 
 Clark’s demeanour is as noble-but-apprehensive as one of Titian's young noblemen, though clever Hockney suggests it's all a post, Clark's fat sausage fingers clinging for dear life to his teacup. The delicacy of Hockney’s genius pencil, outlining that collar, contrasts with blunt boldness of his 60s British counterparts elsewhere in the exhibition. For example, a pair of homegrown Pop artists, Allen Jones’ *You Dare* featuring an aluminium staircase integrated into a landscape painting, and Gerald Laing’s painted Ben-Day dots of space-walking astronauts.
