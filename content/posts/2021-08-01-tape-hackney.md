@@ -1,5 +1,5 @@
 ---
-title: "Hackney in the 1980s: Photographs from the Tape/Slide project"
+title: "Hackney in the 1980s: Photographs from the Tape/Slide project | Hackney Museum"
 date: 2021-08-01
 slug: /tape-hackney
 tags:
