@@ -17,7 +17,7 @@ The project produced newsreels about local life and issues, slides with an audio
 
 Only [two of the full newsreels survive - neither with any audio](https://www.theguardian.com/artanddesign/2020/oct/27/rio-tape-slide-newsreel-group-hackney-cinema) - a symbol of how quickly media can fall out of use and be lost. The surviving photos, stripped of authors, stripped of context, have the air of captured moments, familiar but made strange with the passing years. A bus conductor - a figure who I can only just remember from my 80s London childhood - smiles at the camera, slump-shouldered but looked at adoringly by a child in the next seat. Above his head are slightly ripped ads from the GLC, abolished later that decade.
 
-The ramshackle-ness of the project is made clear by its ‘Equipment book’, actually a school exercise book, with stencilled letters on the front cover, ‘please sign out any item “u’”borrow’.
+The ramshackle-ness of the project is made clear by its ‘Equipment book’, actually a school exercise book, with stencilled letters on the front cover, ‘please sign out any item “u” borrow’.
 
 Hackney was a desperate place in those days, with 20% unemployment, and a population that had dropped by a third between 1931 and 1981. Then as now, a deeply left wing area, though a vastly less trendy one. Then as now, there was a housing crisis - though back then, the crisis was the queue for council flats, not the difficulties of getting a decent two bed in the borough for under half a million pounds.
 
