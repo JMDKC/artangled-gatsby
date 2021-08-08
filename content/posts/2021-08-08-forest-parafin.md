@@ -10,7 +10,7 @@ tags:
   - London
 ---
 
-I’ve always liked a good [thematic group show](https://artangled.com/empreinte-malingue), and [this one at Parafin](http://www.parafin.co.uk/exhibitions--2021--the-forest.html) didn’t disappoint. Forests are part of our shared consciousness, even for those of us who live in the middle of large cities. Across different cultures and times, the forest represents a quiet place to retreat to and hide. But it's also a lonely place, where monsters may lurk.
+I’ve always liked a good [thematic group show](https://artangled.com/empreinte-malingue), and [this one at Parafin](http://www.parafin.co.uk/exhibitions--2021--the-forest.html) didn’t disappoint. The theme is 'the forest', which are part of our shared consciousness, even for those of us who live in the middle of large cities. Across different cultures and times, the forest represents a quiet place to retreat to and hide. But it's also a lonely place, where monsters may lurk.
 
 The exhibition begins with [an engraving](https://commons.wikimedia.org/wiki/File:Gustave_Dor%C3%A9_-_Dante_Alighieri_-_Inferno_-_Plate_1_.jpg) from the mystical French artist Gustave Doré to set the scene. It’s an illustration of the opening canto of Dante’s *Divine Comedy*, portraying one of literature’s [most famous forests](https://poets.org/poem/inferno-canto-i):
 
@@ -24,7 +24,7 @@ Doré’s forest isn’t a place of sanctuary, really, his protagonist casting a
 
 This theme of beauty and threat persists in my two favourite works from the exhibition. The Lithuanian photographer Indrė Šerpytytė photographed forests as part of her *1944-1991* series. Close cropped, her layers of trees and undergrowth merge into each other, the variegated effects of light and shade confusing the viewer's depth perception. The forest is palpably sinister; we can hardly see where the ground is, and our eyes strain for what’s hidden under the canopy. The example above is *Forest Brothers IV* from 2009.
 
-In fact, Šerpytytė photographed hiding places for Lithuanian resistance fighters, who battled, and hid from, the Stalinist Soviet regime in the aftermath of the Second World War. The dense foliage served as a dark sancturary for these men, who had left their homes for fear of being put to death. Their refuge among the trees was involuntary.
+In fact, Šerpytytė photographed hiding places for Lithuanian resistance fighters, "forest brothers", who battled, and hid from, the Stalinist Soviet regime in the aftermath of the Second World War. The dense foliage of forests served as a dark sancturary for these men, who had left their homes for fear of being put to death. Their refuge among the trees was involuntary. Each brother was alone.
 
 So the work plays into the double-edged forest feeling described above: the forest as a place for solace and retreat, but *at the same time* as a threatening, lonely place.
 
