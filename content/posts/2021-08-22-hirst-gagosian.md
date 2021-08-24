@@ -14,7 +14,7 @@ Again and again, on this site I’ve returned to exhibitions from the YBAs of th
 
 Gagosian, with its black clad security guards and show-off cavernous spaces, is a perfect venue for Hirst, who’s come up with a variety of spectacular installations to be on display there for the next few months. [This time](https://gagosian.com/exhibitions/2021/damien-hirst-relics-and-fly-paintings/), we’ve gone all black (and it’s hard not to think of [that Fast Show sketch](https://www.youtube.com/watch?v=IIW9sL-Yf6Q) as you walk around).
 
-![damien hirst - installation view](2021-08-22-hirst-gagosian/hirst-gagosian-1.jpeg)
+![damien hirst - installation view](/hirst-gagosian-1.jpeg)
 
 There’s black butterfly-patterned wallpaper throughout. There’s some skulls too, another Hirst motif, encased by black-sprayed insects. These insects are also packed onto monochrome canvases on the wall - the heaviness of it all brought to mind Richard Serra’s oil stick paintings, which [I’d seen in the same gallery](/serra-gagosian) a couple of years back.
 
