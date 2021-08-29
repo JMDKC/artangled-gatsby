@@ -1,7 +1,7 @@
 ---
 title: "Daniel Burley: The Intricate Live Habits and Rituals of the Goblin | GAO Gallery"
 date: 2021-08-29
-slug: /hirst-gagosian
+slug: /burley-gao
 tags:
   - Daniel Burley
   - Richard Serra
