@@ -19,7 +19,7 @@ I think of a plain circle of electric light, cast by a ceiling-mounted electric 
 
 I always found that the works presented at this gallery were inscrutable, a bat-squeak of aesthetic achievement that’s well beyond my untrained range. Quite suitably, it’s behind a sticky door in a narrow, nothingy road behind Oxford Street. I used to go in my lunch hour, when I worked nearby, and usually left baffled.
 
-Verjux is best-known for light works like this, which he calls *éclairages*. (The French word for ‘lighting’.) There and not there. And way more inscrutably austere than other artists of light that have shown in London really, like [Nam June Paik](https://www.tate.org.uk/whats-on/tate-modern/exhibition/nam-june-paik) and [Ann Veronica Janssens](https://www.southlondongallery.org/exhibitions/ann-veronica-janssens-hot-pink-turquoise/).
+Verjux is best-known for light works like this, which he calls *éclairages*. (The French word for ‘lighting’.) There and not there. And way more inscrutably austere than other artists of light that have shown in London recently, like [Nam June Paik](https://www.tate.org.uk/whats-on/tate-modern/exhibition/nam-june-paik) and [Ann Veronica Janssens](https://www.southlondongallery.org/exhibitions/ann-veronica-janssens-hot-pink-turquoise/).
 
 That austerity, and blankness, belongs to a particular moment in time. This plain, bright, uninterrupted circle on the wall, in a dingy gallery room, left me baffled then, but returns to me now. Which in turn, is a tribute to Verjux’s practice…
 
