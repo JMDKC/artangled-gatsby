@@ -17,11 +17,11 @@ All that’s gone in the aesthetic mixer for [this show in the small GAO Gallery
 
 Their expressions are pretty horrible, but there’s something about those huge clown feet and uber bright clothes that makes Burley’s goblins more cute than threatening. On the borderline between monstrous and zany, they reminded me of Rinus Van de Velde’s clay models, which [I’d seen and enjoyed at König last summer](/velde-koenig).
 
-They’re idle, stuck in the forest in their weird fashions - according to the show notes, they had to scavenge for them, being “societal outsiders” out of all.
+The goblins are idle, stuck in the forest in their weird fashions - according to the show notes, they had to scavenge for them, being “societal outsiders” out of all.
 
 On the wall behind them, a few plywood sculptures, painted over, quite sloppily, in white. They blend in to the walls of this white cube, making it look like the walls themselves are bulging out in places. That’s intentional: making it look like the magical green bootcut beasts are warping the room to their will.
 
-I was pretty enchanted, though I wonder how broadly this enchantment was shared - or if that even matters? There were a total of seven names on the wall-mounted artist’s book, and no pen for me to make eight. The exhibition’s been open for three months or so, and I went on the final day. As I turned to go, I realised that all three had their backs turned to the gallery’s entrance.
+I was pretty enchanted, though I wonder how broadly this enchantment was shared - or if that even matters? There were a total of seven names on the wall-mounted artist’s book, and no pen for me to make eight. The exhibition’s been open for three months or so, and I went on the final day. As I turned to go, I realised that all three goblins had their backs turned to the gallery’s entrance, from which me and at least seven others had come to visit them.
 
 These beasts are on the margins of society, after all.
 
