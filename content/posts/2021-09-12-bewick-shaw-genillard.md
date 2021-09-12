@@ -1,5 +1,5 @@
 ---
-title: "Children Riding Gravestones: George Shaw & Thomas Bewick"
+title: "Children Riding Gravestones: George Shaw & Thomas Bewick | Laure Genillard"
 date: 2021-09-12
 slug: /bewick-shaw-genillard
 tags:
