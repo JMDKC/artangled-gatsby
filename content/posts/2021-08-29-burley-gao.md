@@ -4,7 +4,7 @@ date: 2021-08-29
 slug: /burley-gao
 tags:
   - Daniel Burley
-  - Richard Serra
+  - Rinus Van de Velde
   - GAO Gallery
   - London
 ---
