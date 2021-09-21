@@ -16,7 +16,7 @@ Through circumstance, [this Royal Academy show](https://www.royalacademy.org.uk/
 
 Even aged 82, Hockney has remained relentless, churning out a picture a day or so at the time, observing the gradients of light on a favourite view, the wire garden furniture outside his window, a treehouse with a precarious ladder he surely doesn’t climb up anymore. Bare branched trees get leaves, blossom. None of the works are named, only numbered.
 
-The show is arranged roughly thematically - a group of flower pictures here - a pair of night views there. The deeply chocolate boxy nature of many of the works are, fine. Hockney’s a living legend, and he’s assembled enough cred as a living legend to get away with being this banal.
+The show is arranged roughly thematically - a group of flower pictures here - a pair of night views there. The works are mainly, deeply chocolate boxy. Hockney’s a living legend, and he’s assembled enough cred as a living legend to get away with being this banal.
 
 ![david hockney - normandy 2020](/hockney-royal-academy-2.jpeg)
 
