@@ -16,7 +16,7 @@ This work’s simple and impressive: it’s a big blow-up model of the moon. Ste
 
 ![luke jerram 'museum of the moon' in durham catehdral](/moon-durham-1.jpeg)
 
-Durham Cathedral’s Norman builders were motivated by their need to assert their power, as well as religious concerns. The vast building sits like a great ship cresting a wave, on its high peninsula over the river Wear. Anything but the biggest of artworks would be swamped. But actually, despite its size - seven metres across, taking up a big chunk of the cathedral’s central crossing - Jerram’s moon is surprisingly modest. It’s not making a bold statement. It’s just swaying.
+Durham's Norman builders were motivated by their need to assert their power, along with any religious concerns. They put up vast building in around 50 years. Now, it sits like a great ship cresting a wave, on its high peninsula over the river Wear. By contrast and despite its size - seven metres across, taking up a big chunk of the cathedral’s central crossing - Jerram’s moon is surprisingly modest. It’s not making a bold statement. It’s just swaying.
 
 The unobtrusive politeness of the work was captured by a tannoy voiceover that cut into the celestial soundscape surrounding the moon, composed for Jerram by Dan Jones, during my visit. “The museum of the moon encourages us to delight in this house of god”, said the priest, just before she encouraged us to pray for [the North of England Refugee Service](https://refugee.org.uk/).
 
