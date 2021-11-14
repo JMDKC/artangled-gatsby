@@ -17,7 +17,7 @@ Kossoff's subject matter is firmly rooted in the city he rarely left. The parts 
 
 ![leon kossoff - childrens swimming pool autumn](/kossoff-annely-juda-1.jpeg)
 
-Kossoff really focussed in on a few areas of London: Whitechapel, Spitalfields, Kilburn, Dalston, King’s Cross. None of which would have been of particular interest to an aspirational Londoner at the time, though all now are very desirable areas to live in. Kossoff was interested in the great urban renewal that started grinding its gears into action in the 1950s and 60s following the wartime bombings, painting the great building sites of the Shell Centre on the south bank and the YMCA building in Tottenham Court Road.
+Kossoff really focussed in on a few areas of London: Whitechapel, Spitalfields, Kilburn, Dalston, King’s Cross. None of which would have been of particular interest to an aspirational Londoner at the time, though all now are very desirable areas to live in. Kossoff was interested in the great urban renewal that started grinding its gears into action in the 1950s and 60s following the wartime bombings, painting the great building sites of the Shell Centre on the South Bank and the YMCA building in Tottenham Court Road.
 
 I was moved by his scenes from a place that’s still pretty grungey, Willesden Junction: just like Prunella Clough, [whose own show at Annely Juda I covered a couple of months back](/clough-annely), Kossoff explored the train yards and lines around that North London station interchange. “Railways open up the territory,” he explained. “They give you space, and they give you light, and they give you movement.”
 
