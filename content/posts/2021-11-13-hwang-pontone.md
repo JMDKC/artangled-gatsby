@@ -1,5 +1,5 @@
 ---
-title: "Hwang Seontae | The Power of Light"
+title: "Hwang Seontae: The Power of Light | Pontone Gallery"
 date: 2021-11-13
 slug: /hwang-pontone
 tags:
@@ -12,7 +12,7 @@ tags:
 
 This exhibition [shows scenes of well-appointed, but empty modernist interiors](https://pontonegallery.com/exhibitions/85-hwang-seontae-the-power-of-light/overview/) from Korean artist Hwang Seontae.  They’re light boxes, with sandblasted glass fronts and cold LED lights, the cable powering each scene discreetly boxed in.
 
-In the scenes, the light comes from the windows: all of the works on show have the same title, *The Space with Sunshine*. It’s sunny outside, meaning that strong shadows are cast on the wooden floorboards. I’m not smart enough to recognise the furnishings, but they’re surely meant to be expensive. All scenes are totally depopulated, which maybe explains the absolute orderliness of these interiors.
+In these imaginary rooms, the light comes from the windows: all of the works on show have the same title, *The Space with Sunshine*. It’s sunny outside, meaning that strong shadows are cast on the wooden floorboards. I’m not smart enough to recognise the furnishings, but they’re surely meant to be expensive. All the rooms are totally depopulated, which maybe explains the absolute orderliness of these interiors.
 
 ![Hwang Seontae - The Space with Sunshine](/hwang-pontone-1.jpeg)
 
