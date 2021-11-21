@@ -28,5 +28,3 @@ Constable elevated the scene into fantasy with the addition of busts of Michelan
 Elsewhere in the show, Constable’s obsession with this light is played out again and again, in his sketches and prints, and in the vigour and texture of his paint. I went back home and took another look at that flat little print on my wall. An echo of true greatness, faint as late November, late afternoon sunshine.
 
 *Late Constable is at the Royal Academy (London). 30 October 2021 - 13 February 2022*
-
-#art/artangled
