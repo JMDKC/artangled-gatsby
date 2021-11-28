@@ -1,6 +1,6 @@
 ---
 title: "Late Constable | Royal Academy"
-date: 2021-11-20
+date: 2021-11-21
 slug: /constable-royal-academy
 tags:
   - John Constable
