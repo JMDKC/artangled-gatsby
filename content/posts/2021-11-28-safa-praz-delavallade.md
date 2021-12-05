@@ -1,7 +1,7 @@
 ---
 title: "Christine Safa: L’habitude du ciel | Praz-Delavallade"
 date: 2021-11-28
-slug: /safa-praz-delevallade
+slug: /safa-praz-delavallade
 tags:
   - Christine Safa
   - Praz-Delavallade
