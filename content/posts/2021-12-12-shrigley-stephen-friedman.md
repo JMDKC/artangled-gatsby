@@ -12,7 +12,7 @@ tags:
 
 Way too modest. Shrigley has actually been making bank for years with tea towels, mugs and other merch branded with his often very funny captioned drawings. I’d have a hard time thinking of a museum gift shop I’ve visited recently that *hasn’t* been hawking some kind of Shrigleyana on sale. So in a topsy-turvy way, it was nice to see some of the Cheshire-born, Brighton-based artist’s work in the much less commercialised environment of… commercial gallery Stephen Friedman, [which is featuring a conceptual piece](https://www.stephenfriedman.com/exhibitions/154-david-shrigley-mayfair-tennis-ball-exchange-private-view-thursday-18-november-6-8pm/) this month.
 
-![David Shrigley - MAYFAIR TENNIS BALL EXCHANGE](2021-12-12-shrigley-stephen-friedman/shrigley-stephen-friedman-1.jpeg)
+![David Shrigley - MAYFAIR TENNIS BALL EXCHANGE](/shrigley-stephen-friedman-1.jpeg)
 
 The title of the exhibition, etched in green neon on the gallery’s windows in Shrigley’s immediately recognisable handwriting, is totally deadpan descriptive. Bright yellow tennis balls line the walls, mostly in perfectly regulated rows. They smell amazing. They’re there to be swapped with any tennis balls the visitor has themselves brought.
 
