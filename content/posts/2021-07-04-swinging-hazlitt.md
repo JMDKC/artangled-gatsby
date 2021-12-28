@@ -15,7 +15,7 @@ tags:
 
 Three linked exhibitions this week, each carrying with them a whiff of patchouli oil and pot. It’s not quite (yet) a Summer of Love in London, but these shows all reach back to the 1960s, a time of Pop and Op... and some very big floppy collars.
 
-One of the biggest and floppiest is sported by legendary fashion designer Ossie Clark, sketched at home by the still more legendary (and decade-defining) David Hockney. This delicate pencil drawing is [on show at Hazlitt Holland-Hibbert](https://hh-h.com/usr/library/documents/main/press-release-swinging-london-12-april-2021.pdf), in the bluntly but accurately titled exhibition, *Swinging London*
+One of the biggest and floppiest is sported by legendary fashion designer Ossie Clark, sketched at home by the still more legendary (and decade-defining) David Hockney. This delicate pencil drawing is [on show at Hazlitt Holland-Hibbert](https://hh-h.com/usr/library/documents/main/press-release-swinging-london-12-april-2021.pdf), in the bluntly but accurately titled exhibition, *Swinging London*.
 
 ![david hockney - ossie clark powis terrace](/swinging-hazlitt-1.jpg)
 *Ossie Clark. Powis Terrace (1968)*
