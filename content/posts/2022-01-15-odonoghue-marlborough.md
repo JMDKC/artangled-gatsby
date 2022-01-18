@@ -13,16 +13,16 @@ Hughie O’Donoghue is a Manchester-born painter who now lives in Ireland. I say
 Taken as a whole, the images are haunting. The big tarpaulins all depict a shipwreck: the *MV Plassy*, a cargo ship that ended its days carrying cargo in a storm in 1960. (More recently, it’s had an artistic afterlife in the opening credits of legendary sitcom *Father Ted*.)
 
 ![hughie o'donoghue - wake i](/odonoghue-marlborough-1.jpeg)
-*Wake I* (above) is representative of these tarpaulin works. Painted bands of deep blue, white and rust trap and capture the ship. The plasticky sheen of the base material throws the eye off the image, as does the fact the tarpaulin isn’t quite nailed straight to the gallery wall, but instead undulates slightly. This serves to heighten the atmosphere of quiet, saltwater melancholy that pervades throughout the show.
+*Wake I* (above) is representative of these tarpaulin works. Painted bands of deep blue, white and rust trap and capture the ship. The plasticky sheen of the base material throws the eye off the image, as does the fact the tarpaulin isn’t quite nailed straight to the gallery wall, but instead undulates slightly.
 
-That rust colour is everywhere, made up of reds and yellows, connoting crumbling and age, but also a kind of beauty.
+An atmosphere of quiet, saltwater melancholy pervades. It's from that rust colour, which is everywhere, made up of reds and yellows, connoting crumbling and age, but also a kind of beauty.
 
 I also loved the smaller works on prepared sackcloth, such as *Cargo II*, pictured below.
 
 ![hughie o'donoghue - cargo ii](/odonoghue-marlborough-2.jpeg)
 The more absorbent material means that there’s a surface patina on the transposed photograph of rolling waves. A patina that’s unmistakably… rusty.
 
-Again, the work doesn’t quite adhere neatly to the wall, meaning the viewer gets a good view of the white splotches on the underside of the sackcloth. They look like age spots. But, checking the show notes again, this work is from 2021, just like all the others in the show.
+Again, the work doesn’t quite adhere neatly to the wall, meaning the viewer gets a good view of the white splotches on the underside of the sackcloth. They look like age spots. But, checking the list again, I saw that this work is from 2021, just like all the others in the show.
 
 The only thing I didn’t like about this atmospheric and intriguing exhibition is its title. The *MV Plassy* ran aground on shallow waters in a storm. And, somehow, these fine works make me feel like the ship is rusting and evolving in the here and now, becoming something new, not just fading into memory.
 
