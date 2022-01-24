@@ -16,9 +16,9 @@ Copenhagen-based Hansen clearly enjoys escaping to the countryside: the painting
 
 ![Martin Aagaard Hansen - Skyggebror](/aagard-pacific-1.jpeg)
 
-*Skyggebror* (above) is a good example: the shadowy figure, deep in the swirling woods, half turns away from us. Details on his clothes, and his feet, are picked out by scratchy, very fine white lines. These lines are like patterns carved on tree bark; and they sort of are, given that each work, combining oil paint and chalk, is made on wooden boards.
+*Skyggebror* (above) is a good example: the shadowy figure, deep in the swirling woods, half turns away from us. Details on his clothes, and his feet, are picked out by scratchy, very fine white lines. Each work, combining oil paint and chalk, is made on wooden boards.
 
-This gives Aagaard’s scenes a jewel-like clarity. The matt surface withholds our reflection, making us look deeper into the forest. It allows the networks of white scratchy lines to grow on the wooden surface, like fungi on bark.
+These materials give Aagaard’s scenes a jewel-like clarity. The matt surface withholds our reflection, making us look deeper into the forest. The hard surface allows the networks of white scratchy lines to grow, like fungi on bark.
 
 I’d like to think these fine, distinctive paintings would work on me in any weather. Maybe that’s due to some preoccupation or other I have with forest scenes. It reminds me of other forests I’ve featured here before, such as the [mysterious photographs from Indrė Šerpytytė](/forest-parafin) or Tom Hammick’s [blue-washed landscape paintings](/hammick-flowers).
 
