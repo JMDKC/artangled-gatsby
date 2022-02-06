@@ -24,6 +24,6 @@ What do I take from this retrospective then? It has very impressive breadth, bol
 
 Bacon’s bull bluntly copies a worn Picasso motif, but renders it unique: trapping the animal indoors through careful gridlines and a bullring-like curve. It’s ghostly where so many of his other animals - his raging chimpanzees and popes and muscle men of decades past - are viciously corporeal. I don’t remember it being much to look out, a faded presence, an echo of greatness.
 
-Or maybe it didn’t burn itself into my brain because I wasn’t paying attention, assuming I’d be back to give it a proper look before too long. Or maybe it’s just the brain fog from COVID. Lucky me that I can go back to refresh my memory and get my bearings again, soon.
+Or maybe the bull didn’t burn itself into my brain because I wasn’t paying attention, assuming I’d be back to give it a proper look before too long. Or maybe it’s just the brain fog from COVID. Lucky me that I can go back to refresh my memory and get my bearings again, soon.
 
 *Francis Bacon: Man and Beast is at the Royal Academy (London). 29 January - 17 April 2022*
