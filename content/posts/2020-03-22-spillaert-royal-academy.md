@@ -1,7 +1,7 @@
 ---
 title: "Léon Spilliaert | Royal Academy"
 date: 2020-03-22
-slug: "/spillaert-royal-academy"
+slug: "/spilliaert-royal-academy"
 tags:
   - Léon Spilliaert
   - James Ensor
