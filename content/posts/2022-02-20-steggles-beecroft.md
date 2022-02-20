@@ -1,7 +1,7 @@
 ---
 title: "Brothers in Art: Walter & Harold Steggles and the East London Group | Beecroft Art Gallery"
 date: 2022-02-20
-slug: ""/steggles-beecroft"
+slug: "/steggles-beecroft"
 tags:
   - Walter Steggles
   - Elwin Hawthorne
