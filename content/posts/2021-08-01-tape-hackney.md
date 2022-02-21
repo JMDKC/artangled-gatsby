@@ -26,9 +26,9 @@ The people here have a cool toughness a world away from the tattooed graphic des
 ![hackney scene](/tape-hackney-2.jpeg)
 *(1983)*
 
-I loved the two bespectacled seen-it-all grannies, effortlessly toting palettes of Skol (yuck!), who you definitely wouldn’t see getting a couple of bottles of organic perry up the road at Clapton Craft, as I did after seeing the show. Similarly, it’s unimaginable that Hackney Town Hall would ever be violently occupied
+I loved the two bespectacled seen-it-all grannies, effortlessly toting palettes of Skol (yuck!), who you definitely wouldn’t see getting a couple of bottles of organic perry up the road at Clapton Craft, as I did after seeing the show. Similarly, it’s unimaginable that Hackney Town Hall would ever be violently occupied these days. It was back in the 80s, though!
 
-Some of the photos, at their most self conscious, made me roll my privileged eyes. Others are just beautiful - a deliciously formal shot of the local Kingsmead Estate could be an Axel Hütte. And some take me back to my childhood, like one shot of a boy lying on his living room carpet, watching a bulky TV, the air warmed by a gas heater identical to the one in my parents house, on the other side of the city, at the same time.
+Some of the photos are just beautiful - a deliciously formal shot of the local Kingsmead Estate could be an Axel Hütte. And some take me back to my childhood, like one shot of a boy lying on his living room carpet, watching a bulky TV, the air warmed by a gas heater identical to the one in my parents house, on the other side of the city, at the same time.
 
  More, many more, of the pictures are on Instagram at @[riocinemaarchive](https://www.instagram.com/riocinemaarchive/?hl=en).
 
