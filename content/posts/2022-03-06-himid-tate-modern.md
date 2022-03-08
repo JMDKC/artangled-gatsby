@@ -1,7 +1,7 @@
 ---
 title: "Lubaina Himid | Tate Modern"
 date: 2022-03-06
-slug: “/himid-tate-modern”
+slug: "/himid-tate-modern"
 tags:
   - Lubaina Himid
   - Tate Modern
