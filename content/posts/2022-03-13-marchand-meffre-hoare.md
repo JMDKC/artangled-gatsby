@@ -13,7 +13,7 @@ tags:
 
 Anyway, if ruin porn exists, Yves Marchand and Romain Meffre are some of the top pornographers in the game. They’re behind *[The Ruins of Detroit](https://www.theguardian.com/artanddesign/2011/jan/02/detroit-ruins-marchand-meffre-photographs-ohagan)*, a coffee table book of sumptuously shot photos of the motor city, once so prosperous and now run so completely to seed. The two French photographers started photographing the city in 2005, and the book came out in 2011. They've been diligently photographing run-down places in the US ever since, and some more recent photos are [now on show at Tristan Hoare Gallery](https://tristanhoaregallery.co.uk/exhibitions/48-movie-theaters-yves-marchand-romain-meffre/overview/).
 
-![Yves Marchand & Romain Meffre - 'Metropolitan Opera House, Philadelphia, PA, 2012'](2022-03-13-marchand-meffre-hoare/marchand-meffre-hoare-1.jpeg)
+![Yves Marchand & Romain Meffre - 'Metropolitan Opera House, Philadelphia, PA, 2012'](/marchand-meffre-hoare-1.jpeg)
 *Metropolitan Opera House, Philadelphia, PA, 2012*
 
 As the show’s title suggests, this time Marchand and Meffre focus on cinemas. Generally built in the golden age from the 1910s to the 1930s, these huge palaces, with capacities in the thousands, run the full exuberent interwar architectural gamut from Deco so streamlined. Rather than ruins, these “movie theaters” have been repurposed: this one’s now a tabernacle, that one sells guns. Saddest of all, one in San Francisco is now a parking garage, with only the fun facade remaining to remind us of its former glamour. The notes inform us that it was built in 1928, closed in 1957 and part-demolished in 1964.
