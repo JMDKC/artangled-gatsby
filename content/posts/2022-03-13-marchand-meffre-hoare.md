@@ -1,5 +1,5 @@
 ---
-title: "Yves Marchand & Romain Meffre: Movie Theaters Tristan Hoare Gallery"
+title: "Yves Marchand & Romain Meffre: Movie Theaters | Tristan Hoare Gallery"
 date: 2022-03-13
 slug: "/marchand-meffre-hoare"
 tags:
