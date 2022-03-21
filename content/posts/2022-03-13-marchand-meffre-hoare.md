@@ -24,7 +24,7 @@ This place was built in 1908 as a theatre, became a cinema in the 1920s, a ballr
 
 Another former cinema, this time in Queens, New York, has become a Hispanic supermaket. Under the French artists’ pitiless eye, we are shown strip lights installed in polystyrene-looking ceiling panels. They shine a flat, hard light onto neat stacks of masa mix and vanilla rice. But disaster is approaching: on these panels, there are a couple of telltale orangey-yellow patches starting to form, an intimation of ruination…
 
-The contrast between the icy perfection of these large photographs’ compositions - reminding me of Marchand and Meffre German counterparts, [Andreas Gursky](/gursky-hayward) and [Candida Höfer](/hofer-brown) - and the seediness of the subject matter is a familiar trick. That’s not to  say it’s not effective, though.
+The contrast between the icy perfection of these large photographs’ compositions - reminding me of Marchand and Meffre's German counterparts, [Andreas Gursky](/gursky-hayward) and [Candida Höfer](/hofer-brown) - and the seediness of the subject matter is a familiar trick. That’s not to  say it’s not effective, though.
 
 Writing about looking at these photos, in a beautiful high-ceilinged room in one of London’s very nicest squares, sunlight slanting in onto the floorboards, makes me feel a bit dirty, now that the visit’s over. It was fun at the time though.
 
