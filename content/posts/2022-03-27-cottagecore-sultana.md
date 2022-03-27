@@ -1,7 +1,7 @@
 ---
-title: “AR Penck: Paintings 1974-1990 | White Cube”
+title: "Cottagecore | Sultana"
 date: 2022-03-20
-slug: “/penck-white-cube”
+slug: "/cottagecore-sultana"
 tags:
   - Benoît Piéron
   - Sultana
