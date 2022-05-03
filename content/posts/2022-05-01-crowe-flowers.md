@@ -13,7 +13,7 @@ tags:
 
 A pair of unseasonal exhibitions this week, in galleries on opposite sides of Cork Street. Unseasonal in that both of the featured artists use bare, skeletal tree branches as consistent visual motifs; look around you though, and trees are bursting into leaf everywhere, as summer begins to stir.
 
-Victoria Crowe, [on show at Flowers](https://www.flowersgallery.com/exhibitions/534-victoria-crowe-resonance-of-time/), worked with Prunella Clough, who’s shown up [more than once on this site before](https://artangled.com/tags/prunella-clough); unlike her teacher though, Crowe’s work escapes from the city. She specialises in almost spiritual landscapes of forests, mountains, and occasionally closer up views of branches and leaves. 
+Victoria Crowe, [on show at Flowers](https://www.flowersgallery.com/exhibitions/534-victoria-crowe-resonance-of-time/), studied under Prunella Clough, who’s shown up [more than once on this site before](https://artangled.com/tags/prunella-clough); unlike her teacher though, Crowe’s work escapes from the city. She specialises in almost spiritual landscapes of forests, mountains, and occasionally closer up views of branches and leaves. 
 
 ![victoria crowe - 'shining of a late sun'](/crowe-flowers-1.jpeg)
 
