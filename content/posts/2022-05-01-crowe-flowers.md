@@ -1,7 +1,7 @@
 ---
 title: "Victoria Crowe: Resonance of Time | Flowers"
 date: 2022-05-01
-slug: “/crowe-flowers”
+slug: "/crowe-flowers"
 tags:
   - Victoria Crowe
   - Hans Hartung
