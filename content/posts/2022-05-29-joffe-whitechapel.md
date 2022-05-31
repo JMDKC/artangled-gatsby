@@ -9,9 +9,9 @@ tags:
   - London
 ---
 
-I’m a major train geek, but even I wasn’t ready for the opening of the Elizabeth Line, London’s biggest public transport event in decades, to be so *joyous*. The huge, cool, beautiful stations, with their futuristic yet practical perforated concrete panels were filled with joyriders the first day it opened on Tuesday. By later in the week, the stations were still packed, but by now everybody seemed to be using the line for what it’s intended to be: a much quicker way of getting across town.
+I’m a major train geek, but even I wasn’t ready for the opening of the Elizabeth Line, London’s biggest public transport event in decades, to be so *joyous*. The huge, cool, beautiful stations were filled with joyriders the first day it opened on Tuesday. By later in the week, the stations were still packed, but by now almost everybody seemed to be using the line for what it’s intended to be: a much quicker way of getting across town.
 
-I’m gobsmacked that I could get from my gym in West Ham to the Helio Oiticaca show at Lisson Gallery, close to Paddington, in half an hour - like I did yesterday. That’s a small, art-oriented example of the across-the-board opportunities the line has opened for so many of the city’s residents. The beauty and utility of the line has led to a palpably celebratory mood which reminds me of the 2012 Olympics, and that I can’t help contrasting with the last two shitty years of lockdowns, poor governance and increasing cost squeezes.
+I’m gobsmacked that I could get from my gym in West Ham to the [Hélio Oiticica show at Lisson Gallery](https://www.lissongallery.com/exhibitions/helio-oiticica-london), close to Paddington, in half an hour - like I did yesterday. That’s a small, art-oriented example of the across-the-board opportunities the line has opened up. The beauty and utility of the line led to a palpably celebratory mood, which reminded me of the 2012 Olympics; a mood I can’t help contrasting with the last two shitty years of lockdowns, poor governance and increasing cost squeezes.
 
 ![Chantal Joffe: A Sunday Afternoon in Whitechapel - installation view](/joffe-whitechapel-1.jpeg)
 
