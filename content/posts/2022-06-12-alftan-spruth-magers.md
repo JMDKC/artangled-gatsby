@@ -6,7 +6,7 @@ tags:
   - Henni Alftan
   - Thomas Demand
   - Hwang Seontae
-  - White Cube
+  - Sprüth Magers
   - London
 ---
 
@@ -16,12 +16,12 @@ Alftan’s scene is viewed through a half-opened car window: a strip of beach, a
 
 ![Henni Alftan - 'Tinted'](/alftan-spruth-magers-1.jpeg)
 
-The atmosphere is of unsettling absence. The car must have a driver, but they’re out of view. It’s probably moving - is it likely a stationary car would have its window open? - but there are no signs of motion.
+The atmosphere is of unsettling absence. The car must have a driver, but they’re out of view. The car is probably moving - is it likely a stationary car would have its window open? - but there are no signs of motion.
 
 Elsewhere, Alftan plays with other absences: a curtain almost conceals a window, a hallway mirror reflects a staircase, a pile of books is carefully composed, but slightly out of whack, with only half the title on the single visible spine appearing in frame.
 
 These partial obliterations continue in the human figures depicted in the paintings: a hand here, a shoulder here, a neckline there. Perhaps the most telling is *ON/OFF*, a pair of paintings of light switches, and fingers closed around them, suspended during the action of switching.
 
-It’s a diptych of which each painting is in a different room. We don’t know we’ve seen a pair until we’ve seen both. A typical move from such a withholding artist. The meaning is obscured, tinted, like viewing the sea through a car window.
+It’s a diptych of which each painting is in a different room. We don’t know we’ve seen a pair until we’ve seen both. A typical move from such a withholding artist. She slightly obscures the meaning; like the sea is slightly tinted, when seen through a car window.
 
 *Henni Alftan: Contour is at Sprüth Magers (London). 10 June - 30 July 2022*
