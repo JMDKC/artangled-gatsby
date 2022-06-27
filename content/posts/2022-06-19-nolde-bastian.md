@@ -21,6 +21,6 @@ Look closer, and the scenes dissolve like light through water. The smoky belches
 
 It’s striking that the paintings remain complementary between the first on show (from 1930) and the last on show (1946). The colours, deftly arrayed across Japanese paper, remain beautifully chosen.
 
-Nolde said once that he aimed for “absolute originality, the intensive, often grotesque expression of force and life in the simplest form.” Though actually, these paintings aren’t grotesque - unless you think about them.
+Nolde said once that he aimed for “absolute originality, the intensive, often grotesque expression of force and life in the simplest form”. Though actually, these paintings aren’t grotesque - unless you think about them.
 
 *Emil Nolde: Anatomy of Light and Water is at Bastian (London). 06 May - 30 June 2022*
