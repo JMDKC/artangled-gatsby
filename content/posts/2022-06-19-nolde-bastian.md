@@ -9,7 +9,7 @@ tags:
   - London
 ---
 
-Emil Nolde was a supremely talented painter who made gorgeous use of colours suggesting light. He was also a committed Nazi. That’s surely a big reason why he isn’t much seen: this [small show of watercolours](https://www.bastian-gallery.com/en/exhibitions/emil-nolde-anatomy-of-light-and-water/) was the first Nolde exhibition I can recall in London in my years of gallery-going.
+Emil Nolde was a supremely talented painter who made gorgeous use of colours suggesting light. He also had [well-documented Nazi sympathies](https://www.cam.ac.uk/exposinganazi). That’s surely a big reason why he isn’t much seen: this [small show of watercolours](https://www.bastian-gallery.com/en/exhibitions/emil-nolde-anatomy-of-light-and-water/) was the first Nolde exhibition I can recall in London in my years of gallery-going.
 
 As an older man, Nolde spent his summers in Seebüll in Northern Germany, a beach-side town. Thomas Mann country - Caspar David Friedrich country - at least in my head. He sketched the sea at different times of day, picking out waves, clouds, the occasional boat. He did this before, during and after the war in which his ideals were dismantled and destroyed.
 
