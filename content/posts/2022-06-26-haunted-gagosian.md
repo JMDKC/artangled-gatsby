@@ -12,7 +12,7 @@ tags:
   - London
 ---
 
-This is a [typically epically show-offy group exhibition](https://gagosian.com/exhibitions/2022/haunted-realism/), in which various contemporary and 20th century A-listers face each other down in large galleries police by black-clad security men. My favourite confluence of art celebrity came in one room, in which a wall full of Richard Prince photos loomed over a Rachel Whiteread bed, a Jenny Saville bum rubbed against what looked to be a string shopping back with a chunk of polystyrene inside (in fact it was a bronze and marble sculpture from Tatiana Trouvé).
+This is a [typically epically show-offy group exhibition](https://gagosian.com/exhibitions/2022/haunted-realism/), in which various contemporary and 20th century A-listers face each other down in large galleries police by black-clad security men. A confluence of art celebrity, crammed together: here, a wall full of Richard Prince photos loomed over a Rachel Whiteread bed; there, a Jenny Saville bum rubbed against what looked to be a string shopping bag with a chunk of polystyrene inside (in fact it was a bronze and marble sculpture from Tatiana Trouvé).
 
 I’m not snarking, there’s something delightful about that much star power in one place, and there were loads of unexpected great works to see. The gallery states they are aiming for a vibe of “ghostlike… lost futures” with this exhibition. My favourite example of that is pictured below: *Industrial Complex*, produced by Richard Artschwager in 1967.
 

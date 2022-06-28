@@ -1,7 +1,7 @@
 ---
 title: "Günther Förg | Max Hetzler and Luxembourg & Dayan"
 date: 2019-03-10
-slug: "/stoner-modern"
+slug: "/forg-hetzler"
 tags:
   - Günther Förg
   - Max Hetzler
