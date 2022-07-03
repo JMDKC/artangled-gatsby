@@ -1,5 +1,5 @@
 ---
-title: "Alex Margo Arden: All Clear"
+title: "Alex Margo Arden: All Clear | Ginny on Frederick"
 date: 2022-07-03
 slug: "/arden-frederick"
 tags:
