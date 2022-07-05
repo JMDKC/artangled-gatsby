@@ -4,7 +4,7 @@ date: 2018-03-11
 slug: "/pistoletto-simon-lee"
 tags:
   - Michelangelo Pistoletto
-  - Simon Lee Gallery
+  - Simon Lee
   - London
 ---
 

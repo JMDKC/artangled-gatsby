@@ -4,7 +4,7 @@ date: 2022-02-06
 slug: "/bacon-royal-academy"
 tags:
   - Francis Bacon
-  - Léon Spillaert
+  - Léon Spilliaert
   - Pablo Picasso
   - Royal Academy
   - London

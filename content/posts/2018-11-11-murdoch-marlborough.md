@@ -12,7 +12,7 @@ tags:
   - Egon Schiele
   - Michael Landy
   - Léon Wuidar
-  - Marlborough Fine Arts
+  - Marlborough Fine Art
   - PACE
   - The Mayor Gallery
   - Robilant + Voena
