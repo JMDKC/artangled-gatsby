@@ -23,7 +23,7 @@ Some of the development includes the construction of an Elizabeth Line station, 
 
 Taken together, Arden’s telling us a sly story of the old being swept away for the new, no matter how nice the sandwiches were, or how clever the sale posters. Her tone is more mocking than mournful: she chose to title the posters *We Are Not But We Are*.
 
-Arden knows very well the shared charisma of these old and worn-out objects and slogans from the past, when they’re put together, itemised and displayed. (I later found out from reading the exhibition notes, that the spotlights, tiles and even the odour ”composed of forty-two synthetic elements” are part of the show.) 
+Arden knows very well the shared charisma of these old and worn-out objects and slogans from the past, when they’re put together, itemised and displayed. (I later found out from reading the exhibition notes, that the spotlights, tiles and even the odour "composed of forty-two synthetic elements" are part of the show.) 
 
 In her careful marshalling of ideas to inform collections of objects that are initially unimpressive to look at - but reward closer inspection and become more impressive once the viewer thinks more deeply about these ideas - she reminds me of Cornelia Parker, whose [large monograph exhibition at Tate Britain](https://www.tate.org.uk/whats-on/tate-britain/cornelia-parker) I’ve been thinking about since I visited last week.
 
