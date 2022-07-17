@@ -13,6 +13,8 @@ tags:
 
 Central to this new show at Maximillian William, and the source of the pine smell, is *Tubers*, an installation of wooden frames and foundations, linked by potatoes: like the foundations for [one of Sigmar Polke’s potato houses](/polke-werner). It’s surrounded by paintings in those same wood frames, which waver on the borderland between colour fields and representation. Perhaps it’s my imagination, seeing leaves and tree trunks in Skupinska’s pale, cool, colour blocks.
 
+![Alex Margo Arden - We Are Not But We Are](/arden-frederick-2.jpeg)
+
 ![magdalena skupinska - installation view](/skupinska-maximillian-1.jpeg)
 
 It’s an impression that’s reinforced when I find out the materials the artist used in her paints, lovingly listed in the show notes. Ranging from: turmeric, chilli, spirullina and arrowroot - to beetroots, chestnuts and carrots.
