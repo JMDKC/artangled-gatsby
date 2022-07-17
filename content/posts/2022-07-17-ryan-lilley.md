@@ -6,6 +6,7 @@ tags:
   - Kathleen Ryan
   - Josh Lilley
   - London
+---
 
 I chucked out a rotten half lemon the same morning I saw [this show](https://joshlilleygallery.com/exhibitions/red-rose). There was nothing pretty about it, the yellow skin turned wobbly, the innards blue black: fruit spoils so quickly in the summer heat. Kathleen Ryan, on the other hand, sees beauty in this kind of organic ruin; she assembles semi precious gemstones, studded with metal, into sculptures of mouldy fruits, and produces something unique and strange.
 
