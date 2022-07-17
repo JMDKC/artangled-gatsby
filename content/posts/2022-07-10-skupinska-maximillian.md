@@ -1,5 +1,5 @@
 ---
-title: "Magdalena Skupinska: Blending Elements"
+title: "Magdalena Skupinska: Blending Elements | Maximillian William"
 date: 2022-07-10
 slug: "/skupinska-maximillian"
 tags:
