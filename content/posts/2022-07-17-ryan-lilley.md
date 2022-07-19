@@ -10,7 +10,7 @@ tags:
 
 I chucked out a rotten half lemon the same morning I saw [this show](https://joshlilleygallery.com/exhibitions/red-rose). There was nothing pretty about it, the yellow skin turned wobbly, the innards blue black: fruit spoils so quickly in the summer heat. Kathleen Ryan, on the other hand, sees beauty in this kind of organic ruin; she assembles semi precious gemstones, studded with metal, into sculptures of mouldy fruits, and produces something unique and strange.
 
-There’s a peach, a strawberry and two slices of melon: each emblazoned with hundreds and hundreds of of precious beads of different colours. Similarly evocative, but a bit less crafty, are rusty carhoods, strung with costume pearls in spider web patterns, that suggest a picture frame, or a clam.
+There’s a peach, a strawberry and two slices of melon: each emblazoned with hundreds and hundreds of of precious beads of different colours. Similarly evocative, but a bit less crafty, are rusty car hoods, strung with costume pearls in spider web patterns, that suggest a picture frame, or a clam.
 
 ![kathleen ryan - installation view](/ryan-lilley-1.jpeg)
 
