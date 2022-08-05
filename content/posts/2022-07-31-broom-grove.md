@@ -9,7 +9,7 @@ tags:
   - London
 ---
 
-This [collection of abstract works](https://www.grovesquaregalleries.com/exhibitions/shapeshifters/) are made with colourful resin on canvas. Orlanda Broom can only work on them for around two months each year - otherwise the ambient temperature isn’t right. The perfectionist artist also doesn’t allow any resin works with trapped hairs and dust out of the studio.
+Producing this [collection of abstract works](https://www.grovesquaregalleries.com/exhibitions/shapeshifters/), made with colourful resin on canvas, must have taken a toll on the artist. Orlanda Broom can only work on works using resin for a couple of months each year - otherwise the ambient temperature isn’t right. The perfectionist artist also doesn’t allow any resin works with trapped hairs and dust out of the studio.
 
 “I’m interested in the interpretation of abstract works,” she says. “I enjoy that people respond and read the paintings in their own way. I like making space for the personal, subjective response of the viewer and I have a strong desire to allow the viewer their own flow of thought.”
 
