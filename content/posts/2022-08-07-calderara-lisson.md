@@ -20,7 +20,7 @@ Antonio Calderara, also known as Antonio da Vaciago, lived quietly next to Lake 
 
 But Calderara’s not a throwback. He gained early instruction from Lucio Fontana (way before the bullet holes on canvas), and was obviously influenced by another Northern Italian recluse of the time, Giorgio Morandi. There’s a still life of cups and vases on show at Lisson (*Natura Morta*, 1950, above) that tips over from “influenced by” and into “pastiche of”.
 
-From the late 50s onwards though, came a progressive clearing-out of figurative noise. The colours become increasingly desaturated. An untitled work from 1958 (below) shows a transition point: the lake and its shore appear as bands of washy colour, a fingertip touch of figuration only coming from the boat-shaped white streak towards the top of the tiny panel.
+From the late 50s onwards though, came a progressive clearing-out of figurative noise. The colours become increasingly desaturated. An untitled work from 1958 (below) shows a transition point: the lake and its shore appear as bands of washy colour, a fingertip touch of figuration only coming from the boat-shaped white streak towards the top of the panel.
 
 ![Antonio Calderara - Senza Titolo (1958)](/calderara-lisson-2.jpeg)
 *Image credit: Studio International*
