@@ -13,7 +13,7 @@ This group show in Thaddeus Ropac's very grand London space centres on three wom
 
 [Land of Lads, Land of Lashes](https://www.ropac.net/exhibition/rosemarie-castoro-wanda-czelkowska-lydia-okumura) refers to two sculptures in the big room on the upper floor. They're made of epoxy, a type of polymer. They're coloured deep black. And they have vaguely organic, even anthropomorphic, form.
 
-![Installation view](/castoro-ropac.jpg){: .center-image }
+![Installation view](/castoro-ropac.jpg)
 
 There are two sets of these strange black creatures: one looking like ladders, the other like eyelashes. Both look like they are on the march. Throughout her career, Castoro used blacks and whites. The epoxy sculptures date from a short period in the mid-70s, after which the artist moved to other materials, including concrete, steel and tree branches. The work was resolutely abstract and monochrome to the end though: Castoro died in 2015.
 

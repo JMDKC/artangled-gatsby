@@ -12,7 +12,7 @@ Nazi Germany wasn't exactly an ideal environment for any artist, and that's part
 
 This [impressive show at Hauser & Wirth](https://www.hauserwirth.com/hauser-wirth-exhibitions/14504-august-sander-men-without-masks) showcases examples from between 1910 and 1931, a year before Hitler's (elected) rise to power. By 1936, Sander was finished as a public portraitist, with copies of his book impounded. He fled, with most of his negatives, to the countryside during the war, only for his studio to be destroyed in a bombing raid in 1944.
 
-![Installation view](/sander-hauser-wirth.jpg){: .center-image }
+![Installation view](/sander-hauser-wirth.jpg)
 
 Before all that, at the beginning of his career, Sander cut directly against the trends of his day, which were towards stylised, contrived studio shots. Instead, his richly-toned black and white photographs use natural light, the poses of their subjects are spontaneous, and their expressions seem fleeting, as if captured on the fly. They are men - and women - without masks.
 

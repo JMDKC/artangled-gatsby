@@ -16,7 +16,7 @@ This is an artist who was a really big deal in his native land. I first heard of
 
 Now, Michael Werner is [showing a cycle of huge paintings from the final year](http://michaelwerner.com/exhibition/5497/information) in its lovely winter garden, with some other examples of another Immendorff period - his fervent and optimistic 70s paintings of heroic workers and artists, working together to trash capitalism in some impressive wing collars and flares.
 
-![Immendorff](/immendorff-werner-1.jpg){: .center-image }
+![Immendorff](/immendorff-werner-1.jpg)
 
 Immendorff suffers from his attachment to - from the perspective of the comfortable 21st century West - obscure causes (hardcore Marxism) and forgotten struggles (German reunification). And, throughout, along with monumental scale, his works are also handicapped by his inscrutable humour.
 

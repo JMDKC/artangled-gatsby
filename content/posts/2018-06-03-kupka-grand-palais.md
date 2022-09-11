@@ -14,7 +14,7 @@ Despite the genre-hopping, there's a loss of energy towards the end for me, thou
 
 This all makes Kupka's sudden, and brief, swerve in the late 1920s, ripping up his system and painting not quite figurative, but certainly not abstract, pictures of machinery and gramophone discs, quite shocking. (Below is an example from 1927-9: 'Synthèse'.)
 
-![Installation view](/kupka-grand-palais.jpg){: .center-image }
+![Installation view](/kupka-grand-palais.jpg)
 
 The show notes, reverently respectful for the artist's finickety colour and shape system, are pretty scandalised, referring to "the crisis of 'machinism'". The crisis was over by 1930, when, inspired by his friendship with Theo van Doesbourg, Kupka started back with lines and curves, with some derivative de Stijl paintings. The system reasserted itself. And the work died a little.
 

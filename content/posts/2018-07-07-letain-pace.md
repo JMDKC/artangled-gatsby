@@ -12,7 +12,7 @@ Beth Letain's influences range from Giorgio Morandi to Agnes Martin, though her 
 
 My favourite was 'Strong Winds', its bold horizontality and almost hallucinatory depth was the most directly evocative of the exhibition's title: 'Signal Hill' is the hill from which the first morse code was received.
 
-![Installation view](/letain-pace.jpg){: .center-image }
+![Installation view](/letain-pace.jpg)
 
 It's an unpretentious name for a momentous event. And Letain's art is similarly bare and unadorned. The (excellent) show notes refer to the "infinity bands" of her paintings, the slashes of colour extending right to the edge of the frameless canvases. There's the suggestion that the works we see only contain a fraction of the whole; that these colours will go on forever, remaining just as bold and strong.
 
