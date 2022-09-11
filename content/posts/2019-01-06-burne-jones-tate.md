@@ -33,7 +33,7 @@ If you want to see some proper Victorian kitsch, like Burne-Jones with extra Jes
 
 Both public museums have much better free shows currently on show, though. I was pretty flabbergasted by the loans brought in for [Lorenzo Lotto: Portraits](https://www.nationalgallery.org.uk/whats-on/exhibitions/lorenzo-lotto-portraits) at the National Gallery - which together made the case for the artist's stunning empathy and emotional intensity.
 
-![Portrait of a man in a felt hat](Assets/burne-jones-tate-2.jpg)
+![Portrait of a man in a felt hat](/burne-jones-tate-2.jpg)
 
 Check out *Portrait of a man in a felt hat* from 1541: a lower middle class man in his best clothes, looking shy - fingers nervously twitching on his hat brim, worry lines on his forehead. He could have been staring at me from the number 9 bus on the way back to the gallery that day.
 
