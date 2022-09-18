@@ -1,10 +1,10 @@
 ---
-title: "Lea Cetera: Chassis | Phyllida Reid"
+title: "Lea Cetera: Chassis | Phyilida Reid"
 date: 2022-09-18
 slug: /cetera-reid
 tags:
   - Lea Cetera
-  - Phyllida Reid
+  - Phillida Reid
   - London
 ---
 
@@ -20,4 +20,4 @@ These videos, sourced by Cetera from YouTube, are overlaid with grimly humorous 
 
 In this way, the artist shows how the organic can be circumscribed and contained by the man-made and the mechanical: knife, frame, motor. But the bright colours of the grilles and liquid keep things from being too grim. It’s a memorably chipper presentation of a depressing message.
 
-*Lea Cetera: Chassis is at Phyllida Reid (London). 02 September - 01 October 2022*
+*Lea Cetera: Chassis is at Phillida Reid (London). 02 September - 01 October 2022*
