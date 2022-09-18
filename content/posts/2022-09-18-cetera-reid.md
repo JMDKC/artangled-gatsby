@@ -14,7 +14,7 @@ It’s a curiously hypnotic work, most powerful when the growly motor stops. Con
 
 ![Lea Cetera - Chassis (2022)](/cetera-reid-1.jpeg)
 
-Lea Cetera, based in New York, examines “bodily fragmentation and objectification”, the notes add, though the viewer will certainly have guessed that based on the other video works on show. *Giant Cuttlefish*, *Giant Conch* and *Rainbow Lobster* show these grand beasts of the see helpless  on the fishmonger’s slab, being cut up for parts, and for some posh restaurant table.
+Lea Cetera, based in New York, examines “bodily fragmentation and objectification”, the notes add, though the viewer will certainly have guessed that based on the other video works on show. *Giant Cuttlefish*, *Giant Conch* and *Rainbow Lobster* show these grand beasts of the sea helpless  on the fishmonger’s slab, being cut up for parts, and for some posh restaurant table.
 
 These videos, sourced by Cetera from YouTube, are overlaid with grimly humorous words and phrases - my favourite being the simplest: *SWIM* - and, in case we hadn’t got the point of containment and threat already, are partially obscured by brightly coloured metal grilles over the screen.
 
