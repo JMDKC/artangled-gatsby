@@ -5,6 +5,7 @@ slug: "/vostell-cardi"
 tags:
   - Wolf Vostell
   - Per Kirkeby
+  - Mimmo Rotella
   - Nam June Paik
   - Cardi Gallery
   - London
