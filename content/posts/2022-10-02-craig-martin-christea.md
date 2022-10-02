@@ -1,5 +1,5 @@
 ---
-title: "Michael Craig-Martin: Past Present | Christea Roberts Gallery"
+title: "Michael Craig-Martin: Past Present | Cristea Roberts Gallery"
 date: 2022-10-02
 slug: /craig-martin-cristea
 tags:
