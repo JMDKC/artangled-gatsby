@@ -12,7 +12,7 @@ tags:
   - London
 ---
 
-Pieter Saenredam’s paintings of bracingly minimal church interiors helped to define the Dutch Golden Age, artistically at least. Saenredam was a master of minimalism, taking infinite care with slightly varied shades of white on his walls, rendering the play of sunlight and shadow.
+Pieter Saenredam’s paintings of bracingly plain church interiors helped to define the Dutch Golden Age, artistically at least. Saenredam was a master of minimalism, taking infinite care with slightly varied shades of white on his walls, rendering the play of sunlight and shadow.
 
 Michael Craig-Martin’s also known for his use of colour, though his palette is hard, flat and bold. In [this exhibition of new works](https://cristearoberts.com/exhibitions/241-michael-craig-martin-past-present/), Craig-Martin committed the (self-described) “sacrilege” of recreating Saenredam’s *Interior of the Sint-Odulphskerk in Assendelft* as a line drawing, then printing it in several different colourways, including this ultimate inversion - one in black.
 
