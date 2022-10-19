@@ -39,6 +39,6 @@ I really enjoyed Jedd Novatt’s stainless steel *Chaos* sculptures of various s
 
 Bienvenu reminded me a lot of Eric Fischl, and kudos to him for giving us two painted explorations of a very modern light source: people’s faces being lit up by their phone screens in the dark.
 
-Finally, if you ever wanted to find out what Godard’s *Le mépris* looks like with Brigitte Bardot digitally removed, you can find out in [Amie Siegel’s show at Thomas Dane](https://www.thomasdanegallery.com/exhibitions/213/works/), which features exactly that video work. I also found out there that the 1963 movie had an alternative soundtrack for the Italian market. It’s an absurd, pornified counterpoint to Georges Delerue’s famous tune for the rest-of-world verision.
+Finally, if you ever wanted to find out what Godard’s *Le mépris* looks like with Brigitte Bardot digitally removed, you can find out in [Amie Siegel’s show at Thomas Dane](https://www.thomasdanegallery.com/exhibitions/213/works/), which features exactly that video work. I also found out there that the 1963 movie had an alternative soundtrack for the Italian market. It’s an absurd, pornified counterpoint to Georges Delerue’s famous tune for the rest-of-world version.
 
 *Zoe Leonard. Aerials is at Hauser & Wirth (London).  30 November 2018 – 9 February 2019*

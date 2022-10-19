@@ -12,7 +12,7 @@ tags:
   - London
 ---
 
-There’s something about the low light of my homeland, depicted in a painting or a photograph, that pushes me to write about it: see previous examples from [George Shaw](/tags/george-shaw), [Mike Silva](/tags/mike-silva) and [Jock McFadyen](/tags/jock-mcfadyen). This time, it’s [an exhibition from Marwan Bassiouni](https://www.workplacegallery.co.uk/exhibitions/271/overview/), whose impressively cosmopolitan background (Italian-Swiss-Egyptian-American) hasn’t stopped him depicting the most humdrum, low-lit British landscapes with notable sensitivity and skill.
+There’s something about the low light of my homeland, depicted in a painting or a photograph, that pushes me to write about it: see previous examples from [George Shaw](/tags/george-shaw), [Mike Silva](/tags/mike-silva) and [Jock McFadyen](/tags/jock-mc-fadyen). This time, it’s [an exhibition from Marwan Bassiouni](https://www.workplacegallery.co.uk/exhibitions/271/overview/), whose impressively cosmopolitan background (Italian-Swiss-Egyptian-American) hasn’t stopped him depicting the most humdrum, low-lit British landscapes with notable sensitivity and skill.
 
 Bassiouni’s conceit is simple: he shoots landscapes, seen through the windows of mosques and Islamic prayer rooms. The photos on show at Workplace are part of his latest series *New British Views*. Each features a slash of sky: clay coloured, vanilla coloured, pregnant with rain. A poignant contrast with the chintzy, colourful interiors.
 
