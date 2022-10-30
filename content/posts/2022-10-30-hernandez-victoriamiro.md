@@ -18,7 +18,7 @@ Looking closer, we can see that Hernández added depth to his mounds of paint by
 
 Whatever is being depicted, the message is in the paint. Its explosion of colour. Its dynamism - its almost total spontaneity.
 
-I say almost: the work seems spontaneous but somehow also planned by a powerful organising vision. A clue to this vision comes in an intriguing detail, buried in the show notes:  Hernández keeps his paints in a special room, stacked floor to ceiling, but rigorously organised both by colour and the size of its container. I bet a man so meticulous thinks each brushstroke and colour choice through beforehand.
+I say almost: the work seems spontaneous but somehow also planned by a powerful organising vision. A clue to this vision comes in an intriguing detail, buried in the show notes:  Hernández keeps his paints in a special room, stacked floor to ceiling, but rigorously organised both by colour and the size of its container. I'd bet that someone with that degree of meticulousness would think each brushstroke and colour choice through before touching the canvas.
 
 *Minimar* isn’t a spontaneous action painting then. It’s guided by a plan, the outcome of which allows us to glimpse galaxies and microbes, before we reflect on what’s really in front of us. The colours - the resin - and most importantly, the paint itself.
 
