@@ -22,6 +22,6 @@ For Denny, these dead companies are “ghosts”, and he adds to the spooky atmo
 
 I found the mordant captions drifting across the screens, describing the companies’ absurd or dated business models, especially funny. Consider alladvantage.com (1999-2001), a browser that paid you to view ads. Or iharvest.com (1997-2001), which allowed you to archive static copies of web pages. The screens were huge and bright enough to make the show pretty spectacular to look at - though I suppose I'd get that from watching an ad at the venue, too.
 
-Maybe Denny's laughing at the financial follies of a previous decade is a sly comment on the ephemerality of our own late capitalist moment. A moment exemplified by this shiny new big-screen architectural bauble slap bang in the middle of the West End. The Now Building, with its AI NFT logos, is now, now; it’ll be Then, soon. Maybe we’ll look back and laugh.
+Maybe Denny is laughing at the financial follies of a previous decade is a sly comment on the ephemerality of our own late capitalist moment. A moment exemplified by this shiny new big-screen architectural bauble slap bang in the middle of the West End. The Now Building, with its AI NFT logos, is now, now; it’ll be Then, soon. Maybe we’ll look back and laugh.
 
 *Simon Denny - Dotcom Séance is at the Outernet (London). 16 October - 04 December 2022*
