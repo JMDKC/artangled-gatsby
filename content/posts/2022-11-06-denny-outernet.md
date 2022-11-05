@@ -8,7 +8,7 @@ tags:
   - London
 ---
 
-The bombastically-named, black-and-gold clad Now Building is the West End's newest (and brightest) art space. Opened a couple of weeks ago opposite Tottenham Court Road tube station, the open-plan space glows from within, thanks to the massive LED screens which blaze across its interior walls and ceiling. It’s part of a newly-opened complex called the Outernet, which also includes a new theatre and the restoration of a very useful pathway to Soho Square.
+The bombastically-named, black-and-gold clad Now Building is the West End's newest (and brightest) art gallery. Opened a couple of weeks ago opposite Tottenham Court Road tube station, the open-plan space glows from within, thanks to the massive LED screens which blaze across its interior walls and ceiling. It’s part of a newly-opened complex called the Outernet, which also includes a new theatre and the restoration of a very useful pathway to Soho Square.
 
 While the Now Building’s screens usually show advertising, likely in a bid to recoup the no doubt astronomical costs of the complex, its owners have turned over some Sunday afternoon screen time to artists. First up is Simon Denny, with an exhibition that's a voguish but tongue-in-cheek [graphical tribute to the early noughties](https://www.outernetglobal.com/news/outernet-arts-to-launch-with-simon-denny).
 
