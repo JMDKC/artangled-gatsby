@@ -11,7 +11,7 @@ tags:
 
 Nahmad Projects is one of Mayfair’s shiniest white cubes, a deceptively large gallery with a nave, side chapel and benches. This allows the dozen or so large, abstract works that make up most of [this exhibition](https://nahmadprojects.com/exhibition/antoni-tapies-alchemy/) to be presented like relics in a church. 
 
-Antoni Tàpies, the artist on show, made a decisive turn towards abstraction early in his career, and built up a distinctive visual lexicon of signs and symbols, using everyday materials. Annoyingly, the exhibition notes don’t specify exactly *which* materials are used in each work, though maybe that’s the whole point: Tàpies is shown as an alchemist, transforming cast-offs into gold through the power of his artistic imagination. The source material doesn’t matter; the output is what counts.
+Antoni Tàpies, the artist on show, made a decisive turn towards abstraction early in his career, and built up a distinctive visual lexicon of signs and symbols, using everyday materials. Annoyingly, the exhibition notes don’t specify exactly *which* materials are used in each work, though maybe that’s the whole point: Tàpies is shown as an alchemist, transforming cast-offs into gold through the power of his artistic imagination. The source material doesn’t matter; the (divine?) artistic output is what counts.
 
 ![Antoni Tàpies - Color arpillera Ififlerros (1972)](/tapies-nahmad-1.jpeg)
 
