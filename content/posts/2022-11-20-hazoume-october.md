@@ -24,7 +24,7 @@ Hazoumè can afford to take this easy-going attitude to inspiration because the 
 ![Romauld Hazoumè - 'Napo' (2022)](/hazoume-october-2.jpeg)
 *Napo* (2022)
 
-But while such weighty inferences can be side-stepped, they can’t be escaped. After all, the masks that clearly inspired Hazoumeè were originally objects of religious reverence, and repurposing their meaning, using plastic cans and spoons, might seem a bit off to a local audience. No matter where the artist's from. Hazoumè himself seems conscious of a potential backlash, and insists the masks “in no way resemble those originally powerful African masks used for ceremonial purposes”. 
+But while such weighty inferences can be side-stepped, they can’t be escaped. After all, the masks that clearly inspired Hazoumè were originally objects of religious reverence, and repurposing their meaning, using plastic cans and spoons, might seem a bit off to a local audience. No matter where the artist's from. Hazoumè himself seems conscious of a potential backlash, and insists the masks “in no way resemble those originally powerful African masks used for ceremonial purposes”. 
 
 Well, they kind of do resemble them - and isn't mocking the sacred part of the subversive thrill of the carnival? Isn’t the artist's use of oilcans itself symbolically loaded, given the ongoing exploitation of the region’s oil reserves both by global energy companies and corrupt local politicians? 
 
