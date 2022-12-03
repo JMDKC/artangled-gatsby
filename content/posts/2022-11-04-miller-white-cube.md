@@ -29,7 +29,7 @@ He should be careful about that. I noticed that my fellow gallery goers hustled 
 
 Is sellability why all the smaller works on paper are signed and numbered, even doodles of letters on graph paper? Are the spots and splotches of paint that accompany Miller's pencil drawings careless fingerprints, part of his painterly experiments, or just value-building?
 
-Miller will seal the deal with many visitors to the White Cube show, who’ll snap up the (very fine) new £80 Phaidon-published monograph, on sale at the gallery’s shop by the exit. That’s aimed at people like me who can’t afford a drawing, let alone a painting.
+Miller will seal the deal with many visitors to the White Cube show, who’ll snap up the (very fine) [new £80 Phaidon-published monograph](https://www.phaidon.com/store/art/harland-miller-in-shadows-i-boogie-9781838663100/), on sale at the gallery’s shop by the exit. That’s aimed at people like me who can’t afford a drawing, let alone a painting.
 
 I’m sure people who buy it will mostly flip to those book covers, with their funny titles. Enjoyable works from a writer who paints.
 
