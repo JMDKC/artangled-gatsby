@@ -20,8 +20,8 @@ The closer you look, the weirder the painting gets. The trunks of the trees in t
 
 And what about that couple in the painting? Neither one is looking at us and they’re facing away from each other. Are they fighting? Are they plotting something? Or maybe they’re frightened - wouldn’t you be if the hill you sat on was lit up in acrid pink, the tree across the way was glowing red - red for danger.
 
-Dordoy uses source images rather than painting from life: stock photos and phone pictures, as well as the travel poster that inspired *Kindling the March Wind*. These are then run through Photoshop and subjected to various distortions, before ending up on canvas.
+Dordoy doesn't generally paint from life: instead, he uses stock pictures and phone photos, as well as archival images like the travel poster that inspired *Kindling the March Wind*. These are then run through Photoshop and subjected to various distortions, before ending up on canvas.
 
-He’s treading a path worn in by other digital manipulators of found photographs such as [Ed Fornieles](/fornieles-carlos) and [Wade Guyton](/guyton-moma), in other words. But there’s something in Dory’s homely sinisterness that held my attention, even after I stepped out of the gallery and into the cold, still Mayfair afternoon.
+He’s treading a path worn in by other digital manipulators of found images such as [Ed Fornieles](/fornieles-carlos) and [Wade Guyton](/guyton-moma), in other words. But there’s something in Dordoy’s homely sinisterness that held my attention, even after I stepped out of the gallery and into the cold, still Mayfair afternoon.
 
 *Alex Dordoy: Answering Machine is at GRIMM (London). xx to xx 2022*
