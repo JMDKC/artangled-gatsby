@@ -11,7 +11,7 @@ tags:
 
 [This exhibition](https://www.maureenpaley.com/exhibitions/andrew-grassie-looking-for-something-that-doesnt-exist) is seasonally appropriate. I viewed Andrew Grassie’s monochrome paintings on the kind of dark January day where which the sun seems barely to lift from the horizon. The gallery, in an old school building, was viciously strongly lit, as if to compensate for the gloominess outside. The hard electric light made these small, grey, wintry paintings even harder to make out.
 
-It suits the mysterious subject matter. Loch Ness is a place of legend, home to the mythical Loch Ness Monster. Over the past couple of years, London-based Grassie has spent a considerable amount of time up in the Northern Highlands, on the shores of the loch, staring into its peaty waters.
+This all suits the show's mysterious subject matter. Loch Ness is a place of legend, home to the mythical Loch Ness Monster. Over the past couple of years, London-based Grassie has spent a considerable amount of time up in the Northern Highlands, on the shores of the loch, staring into its peaty waters.
 
 ![Andrew Grassie - Through the Trees (2022)](/grassie-paley-1.jpg)
 
