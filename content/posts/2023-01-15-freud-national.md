@@ -23,6 +23,6 @@ Dyer’s gaze is downcast, his broken boxer’s nose, strong jaw and lush quiff 
 
 Freud notices and highlights the man's doubtfulness, his gentleness, despite his tough looks - looks which too-perfectly fit his background as an East End crook. Bacon, an energetic masochist, wanted Dyer to be rougher with him than he was. His lover couldn't fulfil the fantasy, and felt bad about it. Dyer got his ultimate sad revenge by killing himself in Paris, on the eve of Bacon's retrospective at the Grand Palais. Freud painted the portrait in 1965, seven years before that happened, but it’s impossible not to see something foreboding in this handsome man’s downcast glance. 
 
-Whatever you think of the great painter’s cruelty in his life and in his work, Freud's powers of observation never failed him. That he only occasionally turned these powers towards comfort, rather than cruelty, doesn't lessen them. I wish he'd done it more though.
+Whatever you think of the great painter’s life or work, you can't deny that Freud's powers of observation never failed him. That he only occasionally turned these powers towards comfort, rather than cruelty, doesn't lessen them. I wish he'd done it more though.
 
 *Lucian Freud: New Perspectives is at the National Gallery (London). 01 October 2022 - 22 January 2023*
