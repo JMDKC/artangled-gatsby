@@ -20,7 +20,7 @@ Rafman got in early, beginning the project in 2009, two years after Street View'
 
 He's right, it is a specific aesthetic. The photos are instantly recognisable to any Street View user (so that’s to say, pretty much everyone). There’s something in the slightly warped depth and perspective from the nine cameras’ panoramic view - they’re placed on a sphere on top of the van. Rafman also leaves in the compass icon and the Google watermark on the images, enhancing the viewer’s sense of familiarity.
 
-But viewed in a deracinated slideshow, rapid fire, one after the other, with no coherent theme, the views come to seem deeply strange. The only prevailing theme really is the reactions of the people in the photos, noticing that they’re being looked at by the van.
+But viewed in a deracinated slideshow, rapid fire, one after the other, the views come to seem deeply strange. The only prevailing theme really is the reactions of the people in the photos, noticing that they’re being looked at by the van.
 
 These people aren’t generally pleased to see us, like the Belfast youths with their middle fingers up in the image I’ve chosen to illustrate this post. Elsewhere, another young man moons the panoramic camera, his thin haunches turned derisively to us. Another bunch of youths give us an enthusiastic Nazi salute.
 
