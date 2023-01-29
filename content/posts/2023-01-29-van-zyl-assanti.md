@@ -1,19 +1,20 @@
-# 2023-01-29-van-zyl-assanti
-title: “Jenkin van Zyl: Surrender | Edel Assanti”
+---
+title: "Jenkin van Zyl: Surrender | Edel Assanti"
 date: 2023-01-29
-slug: /rafman-wellcome
+slug: /van-zyl-assanti
 tags:
   - Jenkin van Zyl
   - Leigh Bowery
   - Alex Margo Arden
   - Edel Assanti
   - London
+---
 
 I love [this video](https://www.youtube.com/watch?v=msuXu-uAJ5U) of Jenkin van Zyl’s “extreme beauty regime”. The young artist and filmmaker seems delighted by the attention, cheerfully explaining the ins and outs of applying silicon horns, which he does every day, in his impeccably plummy Home Counties accent. The video’s intercut with van Zyl striding around east London and eating a takeaway in full kabuki makeup, facial prosthetics and a blow-up latex body suit, like a lither [Leigh Bowery](https://www.youtube.com/watch?v=om0MrCOXPcE) for millennials.
 
 Van Zyl’s films, the latest of which is [on show now at Eden Assanti](https://edelassanti.com/exhibitions/113-jenkin-van-zyl-surrender/) are long, lushly-shot and narrative-driven. When I saw his film *Machines of Love* at the [Royal Academy Schools Show last year](https://www.royalacademy.org.uk/article/ra-schools-show-2021) - van Zyl did a postgraduate degree there - I wondered where he could possibly have found the budget for the costumes, the soundtrack, the location work. The artist suggested he used old film sets, dodging security guards and guard dogs, to keep things on a “[micro budget](https://edelassanti.com/news/472/)” and shot previous films on GoPros. The work as well as the man uses an extreme beauty regime to flatter and decieve, in other words.
 
-![](2023-01-29-van-zyl-assanti/van-zyl-assanti-1.jpeg)
+![Jenkin Van Zyl - 'Surrender' (installation view)](/van-zyl-assanti-1.jpeg)
 
 The latest film, *Surrender*, used actual booked-out locations for the first time. But it was still shot on a shoestring. “I do too much stuff,” the artist said [in a recent interview](https://www.studiointernational.com/index.php/jenkin-van-zyl-interview-the-world-has-ended-many-times-over). “I really want to have the money to work with other people but, because of necessity, I do all the costumes, the camera, the editing work, the sound. But that’s all under direction, in a way.” This seems breathtakingly impressive, but I guess is a piece of cake with someone committed enough to apply silicon horns to their head every single day.
 
@@ -26,5 +27,3 @@ Maybe I did because I was sat so comfortably: the red-lit screening room has hot
 I only figured out what it was after a few minutes - being so riveted by what was on the screen that I didn’t have the bandwidth to figure out *exactly* what was digging into my back. Luckily, this slight discomfort among all the stimulation serves as a nice metaphor for the experience of van Zyl’s art as a whole.
 
 *Jenkin van Zyl: Surrender is at Eden Assanti (London). 19 January - 04 March 2023*
-
-#art/artangled
