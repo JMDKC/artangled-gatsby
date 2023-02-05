@@ -1,6 +1,6 @@
 ---
 title: "José Lerma: Guerras Tibias | Almine Rech"
-date: 2023-01-29
+date: 2023-02-05
 slug: /rafman-wellcome
 tags:
   - José Lerma
