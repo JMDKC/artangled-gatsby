@@ -10,7 +10,7 @@ tags:
   - London
 ---
 
-José Lerma’s striking recent paintings, several of which [are on show downstairs at Almine Rech](https://www.alminerech.com/exhibitions/9576-jose-lerma) at the moment, are both austere and abundant. Austere in the extreme economy of huge brushstrokes, but abundant in the sheer quantity of paint used. The artist achieves this effect by using a commercial broom to apply acrylic paint directly to a rough burlap canvas.
+José Lerma’s striking recent paintings, several of which [are on show downstairs at Almine Rech](https://www.alminerech.com/exhibitions/9576-jose-lerma) at the moment, are both austere and abundant. Austere in their extreme economy of huge brushstrokes, but abundant in the sheer quantity of paint used to make them. The artist achieves this effect by using a commercial broom to apply acrylic paint directly to a rough burlap canvas.
 
 The head of each subject, most of which are captured in profile, fills each frame almost exactly. The paintings are all apparently named after the Puerto Rico-based artist’s sitters - Alena, Carla Rosa, Rafael Luis - but given he has so few brushstrokes to work with, almost all facial features are obliterated in the large sweeps of acrylic paint. They're depersonalised but also, somehow, characterful.
 
