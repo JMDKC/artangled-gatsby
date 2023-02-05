@@ -1,7 +1,7 @@
 ---
 title: "José Lerma: Guerras Tibias | Almine Rech"
 date: 2023-02-05
-slug: /rafman-wellcome
+slug: /lerma-rech
 tags:
   - José Lerma
   - Piero della Francesca
