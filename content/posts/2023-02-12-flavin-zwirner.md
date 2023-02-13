@@ -9,7 +9,7 @@ tags:
   - London
 ---
 
-The handsome townhouse's windows were glowing with pink light. A warm and welcome sight as I approached the David Zwirner gallery up Hay Hill on a gloomy afternoon in early February, the dark already setting in.
+The handsome townhouse's windows were glowing with warm pink light. A warm and welcome sight as I approached the David Zwirner gallery up Hay Hill on a gloomy afternoon in early February, the dark already setting in.
 
 Warmth isn’t a feeling commonly associated with Dan Flavin, who wore his various intellectual inspirations heavily even by the standards of his fellow macho midcentury Minimals. But you can’t knock the fact that his central artistic innovation - using light as his material - was both radical and influential. Every one of today’s tacky ‘immersive’ Insta-friendly exhibitions that use ‘neon light’ can thank Flavin for every single repost and online like.
 
