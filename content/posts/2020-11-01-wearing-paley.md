@@ -12,7 +12,7 @@ This year, many of us have been given the opportunity to spend a lot more time i
 
 In each of the [fourteen self portraits on show at Maureen Paley](https://www.maureenpaley.com/exhibitions/gillian-wearing-3?image=1), plus [one I saw at the the Royal Academy](https://se.royalacademy.org.uk/2020/artworks/gillian-wearing-ra/57), Wearing’s painted image seems to be waiting for something. Hair in a centre parting, sometimes a bit messy; eyes wide open; mouth downcast. There isn’t explicit distress on these faces, more like a quiet forbearance. I found them deeply relatable, contemplating another empty afternoon in the flat ahead once I’d cycled back home. With nothing to do other than watch the news conference announcing the next lockdown.
 
-![gillian wearing - lockdown portrait](/wearing-paley-1.jpg)
+![Gillian Wearing - 'Untitled (lockdown portrait)'](/wearing-paley-1.jpg)
 *Untitled (lockdown portrait)*
 
 Wearing is a clear-eyed but quite pitiless observer as a painter. A [Guardian review of the show](https://www.theguardian.com/artanddesign/2020/sep/16/gillian-wearing-lockdown-self-portraits-maureen-paley-gallery) reveals that she did quite a lot of the paintings with a mirror, while others were painted from photographs - an extra remove. They are images of images, not drawn from life.
