@@ -1,5 +1,5 @@
 ---
-title: "Dan Flavin: colored fluorescent light | David Zwirner”
+title: "Dan Flavin: colored fluorescent light | David Zwirner"
 date: 2023-02-19
 slug: /noland-pace
 tags:
