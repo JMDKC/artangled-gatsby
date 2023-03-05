@@ -5,7 +5,7 @@ slug: "/guyton-moma"
 tags:
   - Wade Guyton
   - MoMA
-  - New York
+  - New York City
 ---
 
 How unsatisfying to look at art on a computer screen, rather than in a gallery. Unsurprisingly, considering I go to 200+ shows per year, I’ve fallen in love with the whole ritual of gallery going: ringing the bell, taking the printed-out press release, writing in the artist’s book on leaving. And now, how quaint that seems in virus-induced lockdown: bell, paper and pen have all become potential vectors of disease, in my mind's eye.

@@ -8,9 +8,8 @@ tags:
   - Shannon Cartier Lucy
   - Edward Hopper
   - Fredericks & Freiser
-  - London
+  - New York City
 ---
-Danielle Roberts: Evening All Day | Fredericks & Freiser
 
 The portraitist Danielle Roberts, who has [a show](https://www.fredericksfreisergallery.com/exhibitions/danielle-roberts) right now at the Fredericks & Freiser gallery, has a lot in common with [Jenna Gribbon](/tags/jenna-gribbon) and [Shannon Cartier Lucy](/shannon-cartier-lucy), who I’ve featured on here before. All three painters are young women who paint young women: dramatically lit, listless, filled with ennui.
 
