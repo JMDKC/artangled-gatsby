@@ -17,7 +17,7 @@ Roberts’ scenes are generally suburban, and take place at night. One woman is 
 
 ![Danielle Roberts 'Tethered, Above the Streets Between the Lights' (2022)](/roberts-fredericks-freiser-1.jpeg)
 
-The artist must have spent time growing up in these suburban environments (I’m guessing), but now lives in Brooklyn, NY. One work, *Tethered, Above the Streets Between the Lights* - and I love the melodramatic title - showcases this new home. Two men and a woman are at a party on a rooftop, surrounded by tall buildings and water towers. 
+The artist must have spent time growing up in these suburban environments (I’m guessing), but now lives in Brooklyn. One work, *Tethered, Above the Streets Between the Lights* - and I love the melodramatic title - showcases this new home. Two men and a woman are at a party on a rooftop, surrounded by tall buildings and water towers. 
 
 (I could write about water towers all day. Those water towers in Roberts’ painting are the same as those lovingly painted by [Edward Hopper](/tags/edward-hopper), featured in his [massive retrospective on right now at the Whitney](https://whitney.org/exhibitions/edward-hopper-new-york). They seem incredibly exotic to me as a European visitor to New York City.)
 
