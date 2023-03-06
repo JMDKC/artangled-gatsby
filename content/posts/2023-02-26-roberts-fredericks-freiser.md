@@ -13,7 +13,7 @@ tags:
 
 The portraitist Danielle Roberts, who has [a show](https://www.fredericksfreisergallery.com/exhibitions/danielle-roberts) right now at the Fredericks & Freiser gallery, has a lot in common with [Jenna Gribbon](/tags/jenna-gribbon) and [Shannon Cartier Lucy](/shannon-cartier-lucy), who I’ve featured on here before. All three painters are young women who paint young women: dramatically lit, listless, filled with ennui.
 
-Roberts’ young women inhabit a ghostly suburban, artificially lit environment - these paintings are nocturnes. One is perched with one leg up on the back of a car in a convenience store car park. Another shares a bowl of popcorn on a too-small sofa. Another, less lucky, is locked in a (disappointed-looking) post-coital embrace. Each has a blank, zombie-like stare, static as a Byzantine Virgin Mary. This is all offset by Roberts’ dramatic night-time palette of purples and blues, with highlight passages of brighter pinks and greens.
+Roberts’ scenes are generally suburban, and take place at night. One woman is perched with one leg up on the back of a car in a convenience store car park. Another shares a bowl of popcorn on a too-small sofa. Another, less lucky, is locked in a (disappointed-looking) post-coital embrace. Each has a blank, zombie-like stare, static as a Byzantine Virgin Mary. This is all offset by Roberts’ dramatic night-time palette of purples and blues, with highlight passages of brighter pinks and greens.
 
 ![Danielle Roberts 'Tethered, Above the Streets Between the Lights' (2022)](/roberts-fredericks-freiser-1.jpeg)
 
