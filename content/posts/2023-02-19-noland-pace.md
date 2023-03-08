@@ -16,7 +16,7 @@ So, where’s the pressure from? In the technique. Noland, who was active from t
 
 ![Kenneth Noland - 'Via Mojave' (1968)](/noland-pace-1.jpg)
 
-To make things still more stressful, Noland’s artistic stance - in reaction to the ego-fuelled Abstract Expressionists, whose every visible brushstroke was a sign of genius - was to eliminate all traces of his hand. His unprimed surfaces are meant to be as smooth as possible.
+To make things still more stressful for himself, Noland’s artistic stance - in reaction to the ego-fuelled Abstract Expressionists, whose every visible brushstroke was a sign of genius - was to eliminate all traces of his hand. His unprimed surfaces are meant to be as smooth as possible.
 
 Take the example pictured above, *Via Mojave*, from 1968. The yellow, orange and white bands are, like so many other paintings from this show, calming. The pattern is simple. The painter is invisible.
 
