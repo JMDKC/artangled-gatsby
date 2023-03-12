@@ -9,9 +9,9 @@ tags:
   - London
 ---
 
-Grayson Perry’s been making a multi-media attack on the idea of Englishness over recent years. Most recently, there's [this exhibition of textile works at Victoria Miro](https://online.victoria-miro.com/grayson-perry-london-venice-2023/), and a TV show called *[Grayson Perry’s Full English](https://www.theguardian.com/tv-and-radio/2023/jan/26/grayson-perry-full-english-review-comes-dangerously-close-to-tainting-the-artists-brand)*.  Perry loves to poke at, and sometimes celebrate, national identity - English people's sense of themselves. Though obviously, the media he's using at the moment are very different and varied.
+Grayson Perry’s been making a multi-media attack on the idea of Englishness over recent years. In 2019, Perry had an exhibition of pots on this theme [at Victoria Miro’s Mayfair space in 2019](https://www.victoria-miro.com/exhibitions/547/). Most recently, there's [this exhibition of textile works](https://online.victoria-miro.com/grayson-perry-london-venice-2023/), and a TV show called *[Grayson Perry’s Full English](https://www.theguardian.com/tv-and-radio/2023/jan/26/grayson-perry-full-english-review-comes-dangerously-close-to-tainting-the-artists-brand)*.  In both, Perry pokes at, and sometimes celebrates, English people's sense of themselves.
 
-In the gallery, as the show’s title suggests, it’s tapestries this time. (Perry had an exhibition of pots on a similar theme [at Victoria Miro’s Mayfair space in 2019](https://www.victoria-miro.com/exhibitions/547/).) These cloths connote poshness because tapestries tend to hang in stately homes. What’s on these machine-stitched tapestries though? Today’s England.
+I said the exhibition had "textile works", but these particular posh cloths are actually tapestries. Posh, because tapestries tend to hang in stately homes. What’s on these particular machine-stitched tapestries though? Today’s England.
 
 ![Grayson Perry, 'Battle of Britain' (2017)](/perry-miro-1.jpeg)
 
