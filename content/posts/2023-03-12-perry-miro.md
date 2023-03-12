@@ -28,5 +28,3 @@ In case that was too subtle, Perry makes his point more clearly in *Sacred Triba
 Yet again, it’s hard not to get affectionately lost in the details on this particular posh cloth. My favourite lay between the lion’s paws on a landscape of rolling, rainbow-like hills stand two towers: 1 Canada Square, the summit of the Canary Wharf business district in London, and a Norman church tower. I’ve somehow resisted saying it so far but… this is England!
 
 *Grayson Perry: Posh Cloths is at Victoria Miro (London). 03 February - 25 March 2023*
-
-#art/artangled
