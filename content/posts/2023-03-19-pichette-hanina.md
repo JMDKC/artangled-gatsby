@@ -25,7 +25,7 @@ Compositionally similar, but the mood is different.
 
 When Rothko composed his *[Seagram Murals](https://www.tate.org.uk/visit/tate-britain/display/jmw-turner/mark-rothko-seagram-murals)* for the (private, expensive) dining room of a new office skyscraper, he intended to express “tragedy, ecstasy, doom”. And eventually cancelled the contract because he didn’t think the venue was appropriate.
 
-By contrast, Pichette’s work was outward-facing, friendly, aimed for the widest possible public. From these bright abstract oil paintings came much larger works: for example, a massive architectural mural on the side of a public housing block in Vitry-sur-Seine, . And Pichette contributed many other works of public art, both in murals and in large-format sculpture.
+By contrast, Pichette’s work was outward-facing, friendly, aimed for the widest possible public. From these bright abstract oil paintings came much larger works: most famously, a massive architectural mural on the side of a public housing block in Vitry-sur-Seine.
 
 This isn’t to suggest exactly equivalent artistic merit between the two movements - who can say, or meaningfully argue either way? But good to see a show which showcases Abstract Expressionism’s less-celebrated but better-adjusted cousin from across the pond.
 
