@@ -1,6 +1,6 @@
 ---
 title: "Giorgio Morandi: Masterpieces from the Magnani-Rocca Foundation | Estorick Collection"
-date: 2023-03-19
+date: 2023-03-26
 slug: /morandi-estorick
 tags:
   - Giorgio Morandi
