@@ -10,7 +10,7 @@ tags:
 
 [This exhibition](https://www.estorickcollection.com/exhibitions/giorgio-morandi-masterpieces-from-the-magnani-rocca-foundation) claims to show the only work Giorgio Morandi ever painted from a commission. *Still Life (Musical Instruments)*, from 1941 and pictured below, is definitely a break from the norm for the artist, who was and remains famous for his oddly intense small paintings of collections of bottles and cups. 
 
-Morandi stands out for the narrowness of his focus, and his life. Living with his sisters and teaching at the university, working away in his small studio in Bologna (which [I visited, once](https://josephclift.com/writing/the-white-bottle)), painting, again and again, collections of modest household objects on an adjustable table.
+It isn't surprising that this artist wasn't receptive to commissions. Beyond his fame, Morandi stands out for the dogged narrowness of his focus, and his life. Living with his sisters and teaching at the university, working away in his small studio in Bologna (which [I visited, once](https://josephclift.com/writing/the-white-bottle)), painting, again and again, collections of modest household objects on an adjustable table.
 
 Occasionally he went to the nearby town of Grizzana, and painted a view of his house. Sometimes he looked out of the studio’s window and painted the courtyard outside. Then he was straight back to his bottles. There are over 1,300 Morandis in the world, and pretty much all of them depict the subjects listed above.
 
