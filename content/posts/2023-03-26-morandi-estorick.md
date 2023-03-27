@@ -20,7 +20,7 @@ This one-off collection of instruments, then, is a major departure from the norm
 
 Magnani seems to have overstepped the mark with this early 1940s commission, though. The patron sent the artist some instruments to paint. He was repaid for this impertinence by Morandi buying some junky instruments from the flea market, and dashing off a painting that’s both utterly characteristic of his style, and breathtakingly badly executed.
 
-Characteristic, because with its horizontal format, and its thick beigey palette, the painting is purely, distinctively Morandi. Bad, due to the obvious carelessness with which the instruments are put together. 
+Characteristic, because with its horizontal format, and its thick beige-y palette, the painting is purely, distinctively Morandi. Bad, due to the obvious carelessness with which the instruments are put together. 
 
 Morandi’s monolithic bottles and cups, sometimes seem to be floating in space, captured in some unearthly forcefield, trembling under the artist’s concentrated attention. By contrast, these junk shop instruments are instead carelessly dashed off, weightless, an afterthought. 
 
