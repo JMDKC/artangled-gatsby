@@ -7,7 +7,7 @@ tags:
   - Claude Viseux
   - Pierre Soulages
   - Victor Vaserely
-  - Hanina Fine arts
+  - Hanina Fine Arts
   - London
 ---
 
