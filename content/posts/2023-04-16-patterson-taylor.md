@@ -11,7 +11,7 @@ tags:
   - London
 ---
 
-Richard Patterson was a YBA, part of the scandalous 1990s [‘Sensation’ generation](https://www.bbc.co.uk/programmes/m001cbsr). But, like his peers [Gillian Wearing](/tags/gillian-wearing) and [Gavin Turk](/tags/gavin-turk), he’s matured into a painter of sensitivity and skill. Proof of this view comes in ‘[Only Fans](https://www.timothytaylor.com/exhibitions/richard-patterson_2023/)’, a show of small-format works using what the notes describe as a “carnal palette”, which closed this week at Timothy Taylor.
+Richard Patterson was a YBA, part of the scandalous 1990s [‘Sensation’ generation](https://www.bbc.co.uk/programmes/m001cbsr). But, like his peers [Gillian Wearing](/tags/gillian-wearing) and [Gavin Turk](/tags/gavin-turk), he’s matured into a painter of sensitivity and skill. Proof of this view comes in ‘[Only Fans](https://www.timothytaylor.com/exhibitions/richard-patterson_2023/)’, a show of small-format works using what the press release describes as a “carnal palette”, which closed this week at Timothy Taylor.
 
 All 13 paintings in the exhibition are dreamy swirls of flesh-toned roses and ochres, on luxurious-looking linen canvas. They’re somehow deeply textured and flat at the same time, an optical illusion that comes from Patterson using a wet-on-wet technique: painting a layer of different-coloured oil paint while the previous layer is still wet.
 
