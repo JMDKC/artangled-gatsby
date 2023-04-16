@@ -18,7 +18,7 @@ All 13 paintings in the exhibition are dreamy swirls of flesh-toned roses and oc
 ![Richard Patterson 'Delaunay' (2022)](/patterson-taylor-1.jpeg)
 *Delaunay* (2022)
 
-Step back, and in many of the works, and you can just about see the shadowy form of a lounging woman - sometimes her face, sometimes her curvaceous butt. The exhibition’s title, the name of a pay-for-porn website, helps us make sense of what we see: naked flesh, mediated by layers of digital-looking distortion. Intimate yet somehow distanced.
+Step back, and in many of the works you can just about make out the shadowy form of a lounging woman - sometimes her face, sometimes her curvaceous butt. The exhibition’s title, the name of a pay-for-porn website, helps us make sense of what we're seeing: naked flesh, mediated by layers of digital-looking distortion. An illusion of intimacy.
 
 Tricksy representations of online porn are employed quite a bit by artists these days - I’m thinking in particular of a [Wade Guyton show](https://www.crousel.com/en/article/wade-guyton-natural-wine-2019/) I saw a couple of years back, that made sly use of inkjet prints from XVideos (OnlyFans for the hard-up).
 
