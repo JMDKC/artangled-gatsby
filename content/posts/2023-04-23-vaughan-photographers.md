@@ -1,12 +1,12 @@
 ---
-title: "A Hard Man is Good to Find! | The Photographer’s Gallery"
+title: "A Hard Man is Good to Find! | The Photographers Gallery"
 date: 2023-04-23
 slug: /vaughan-photographers
 tags:
   - Keith Vaughan 
   - Cecil Beaton
   - Patrick Procktor
-  - The Photographer’s Gallery
+  - The Photographers Gallery
   - London
 ---
 
@@ -30,4 +30,4 @@ What a beautiful, stylish labour of love Vaughan’s scrapbook is, though. It’
 
 Maybe a bit less thrilling for being less hard-won. But that's the price you pay for progress.
 
-*A Hard Man is Good to Find! is at The Photographer’s Gallery (London). 03 March - 11 June 2023*
+*A Hard Man is Good to Find! is at The Photographers Gallery (London). 03 March - 11 June 2023*
