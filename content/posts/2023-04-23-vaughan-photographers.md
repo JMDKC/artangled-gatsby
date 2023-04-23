@@ -26,7 +26,7 @@ Vaughn, who went on to be a celebrated Neo-Romantic painter, took photos of hard
 
 The sunbathers, in their pants and posing pouches, are sometimes cut out and pasted on colour block backgrounds. The days' temperatures, in Fahrenheit, are etched alongside these blocks, in an artistic collage evocative of heat and promise. The scrapbook made me think of the summer to come, 90 summers later, and how we’ll see the same scenes in the same places, again, an unbroken line of continuity with the past. Though this time around, any such images will likely be selfies, distributed to the photographer’s close friends list on Instagram, rather than consigned to a private scrapbook.
 
-What a beautiful, stylish labour of love Vaughan’s scrapbook is, though. It’s not a coincidence that the scope of this show ends in the mid-1990s, after when online porn became available to the city’s queers and their global brethren. After which, the clandestine analog thrills provided by old-fashioned physique photography became… just clandestine thrills, enabled by way more explicit material. 
+What a beautiful, stylish labour of love Vaughan’s scrapbook is, though. It’s not a coincidence that the scope of this show ends in the mid-1990s, when online porn became available to the city’s queers and their global brethren. After which, the clandestine analogue thrills provided by old-fashioned physique photography became… just clandestine thrills, enabled by way more explicit material. 
 
 Maybe a bit less thrilling for being less hard-won. But that's the price you pay for progress.
 
