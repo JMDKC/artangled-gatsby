@@ -18,7 +18,7 @@ The "physique photographers" on show run the gamut from the famous - including [
 
 This all seems like another world to the Londoners touring the exhibition on a Thursday evening, most of whom, judging by appearances, would have been sending off for a few shots of Dave if they’d had the misfortune to be born a few decades earlier. These days, they have the option of popping to the gay sauna over the road from the gallery after a spin round the exhibition. There’s nothing clandestine about Sweatbox, its exterior walls prominently featuring its own style of physique photography to lure in passers-by.
 
-The city’s gay areas have also shifted - Earl’s Court, Notting Hill and Pimlico were all heavily frequented by the physique photographers and their ilk during the middle of the century, and are all locations featured in the exhibition. But I can’t name so much as a gay pub in any of them these days. 
+The city’s gay areas have also shifted - Earl’s Court, Notting Hill and Pimlico are all locations featured in the exhibition. But I can’t name so much as a gay pub in any of them these days. 
 
 A few meeting points have stayed the same, though. One of these is Highgate Men’s Pond, where the gays of yesterday and today go in summer to watch and be watched. The (almost unchanged) changing room next to the pond is the location for a set of photos taken by [Keith Vaughan](/tags/keith-vaughan) which are almost a century old, but could be from last summer by the looks of them.
 
