@@ -10,7 +10,7 @@ tags:
 
 Richard Tuttle’s art has consistently been defined - and derided - by the modesty of its means. His wood reliefs, his single wires, his pencil marks on the wall are provocatively small-scale. But, taken together, I think there’s a hypnotic pull to his works. You can see for yourself with his latest collection, [on show right now at Modern Art in Mayfair](https://modernart.net/exhibitions/richard-tuttle-18-x-24).
 
-These new wall works are arrayed at eye level around the walls of the gallery. Each was made in the same way: Tuttle drew something onto 18x24 inch paper, hence the name of the show, cut it out, layered one or more pieces of polystyrene-like foam on top, and painted another design on the foam with bright acrylics.
+These new works are arrayed at eye level around the walls of the gallery. Each was made in the same way: Tuttle drew something onto 18x24 inch paper, hence the name of the show, cut it out, layered one or more pieces of polystyrene-like foam on top, and painted another design on the foam with bright acrylics.
 
 ![Richard Tuttle - '18x24': Installation View](/tuttle-modern-1.jpeg)
 
